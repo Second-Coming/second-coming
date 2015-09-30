@@ -1,52 +1,39 @@
-# The Last Days and December 1890 2nd Coming of Jesus Christ.
+# The Last Days and the 1891 Second Coming of Jesus Christ.
 
 ## By George D. Speer Sr.
 
 The fact that the LDS Church believes that these are the “last days” of
-the world is beyond dispute. Even naming our Church after the
-Latter-days. This doctrine that has been repeated over and over again,
-by every prophet and leader, through out the history of the LDS Church.
+the world is beyond dispute. Even naming the Church after the
+Latter-days. This doctrine has been repeated over and over again, by
+every prophet and leader, through out the history of the LDS Church.
 Every member understands this doctrine and has been taught since
 childhood to believe it.
 
-We’ve been taught; *“For the prophecy came not in old time by the will
-of man: but holy men of God spake as they were moved by the Holy
-Ghost.”* [(2 Pet.
+We have been taught: *“I know that the Lord giveth no commandments unto
+the children of men, save he shall prepare a way for them that they may
+accomplish the thing which he commandeth them.”* [(1 Nephi
+3:7)](https://www.lds.org/scriptures/bofm/1-ne/3.7?lang=eng#6) *“For the
+prophecy came not in old time by the will of man: but holy men of God
+spake as they were moved by the Holy Ghost.”* [(2 Pet.
 1:19–21)](https://www.lds.org/scriptures/nt/2-pet/1.19-21?lang=eng#18)
-But what prophecies have been hidden from the members of the LDS Church?
-***“There are those of the rising generation who shall not taste death
-till Christ comes.”*** (Joseph Smith Jr., April 6, 1843 General
-Conference)
-
-*“Brethren, these are some of the writings with which you should concern
-yourselves, rather than commentaries that may come from those whose
-information may not be the most reliable and whose motives may be
-subject to question. And may I say, parenthetically, most of such
-writers are not handicapped by having any authentic information on their
-writings”* (Harold B. Lee, in Conference Report, Oct. 1972, 128; or
-Ensign, Jan. 1973, 106).
-
-The LDS Church since 1820 has had much to say, about the Last Days and
-the 2nd Coming of Jesus Christ, usually focusing not only on the
-preparation of his advent, but rather on the signs. This focus often has
-the effect of producing the emotions of fear, doom, and dread – all of
-them incompatible with love. Jesus taught “There is no fear in love; but
-perfect love casteth out fear” (1 John 4:18) It’s ironic but not
-surprising that the LDS Church requires more of their members to enter
-the Kingdom of God then Jesus. “v.28 Come unto me, all ye that labour
-and are heavy laden, and I will give you rest. v.29 Take my yoke upon
-you, and learn of me; for I am meek and lowly in heart: and ye shall
-find rest unto your souls. v.30 For my yoke is easy, and my burden is
-light. (Matt 11:28-30)
+*“And whatsoever they shall speak when moved upon by the Holy Ghost
+shall be Scripture, shall be the will of the Lord, shall be the mind of
+the Lord, shall be the word of the Lord, shall be the voice of the Lord,
+and the power of God unto salvation”* [(D&C
+68:4)](https://www.lds.org/scriptures/dc-testament/dc/68.4?lang=eng#3)
+But what prophecies and doctrine have been lost in time? ***“There are
+those of the rising generation who shall not taste death till Christ
+comes.”*** (Joseph Smith Jr., April 6, 1843 General Conference)
 
 Here is a chronological history by the early LDS Church, on the Second
-Advent of Jesus Christ, and predictions of his coming in the following
-years: 1846, before 1880, 1881, 1882 after 1884, 1890-91.
+Advent of Jesus Christ, and the predictions of his coming in the
+following years: 1846, before 1880, 1881, 1882 after 1884, 1890-91,
+1893.
 
 1820 The Orson Pratt Journals (August 3rd, 1838) “*Mr. Joseph Smith,
 Jr., who made the following important discovery… was born… on the 23rd
 of December, A. D. 1805… When somewhere about fourteen or fifteen years
-old [1820], he **began seriously to reflect upon the necessity of being
+old, he **began seriously to reflect upon the necessity of being
 prepared for a future state of existence;** but how, or in what way, to
 prepare himself was a question as yet undetermined in his own mind. He
 perceived that it was **a question of infinite importance, and that the
@@ -54,32 +41,29 @@ salvation of his soul depended upon a correct understanding of the
 same.** He saw that if he understood not the way, it would be impossible
 to walk in it except by chance, and the thought of resting his hopes of
 eternal life upon chance or uncertainties was more than he could endure…
-[account of the 1st Vision:] he was enrapt in a heavenly vision, and saw
-two glorious personages who exactly resembled each other in their
-features or likeness. He was informed that his sins were forgiven…
-[note: not God the Father and his Son Jesus Christ; but two unidentified
-personages] And it pleased God on the evening of the **21st of
-September, A. D. 1823**, to again hear his prayers. For he had retired
-to rest as usual, only that his mind was drawn out in fervent prayer,
-and his soul was filled with the most earnest desire "to commune with
-some kind messenger who could communicate to him the desired information
-of his acceptance with God," and also **unfold the principles of the
-doctrine of Christ, according to the promise which he had received in
-the former vision**…* [note: vision not visitation] *This glorious being
-declared himself to be angel of God,* [note: not God the Father and his
-Son Jesus Christ] *sent forth by commandment, to communicate to him that
-his sins were forgiven and that his prayers were heard; and also, to
-bring the joyful tidings, **that the covenant which God made with
-ancient Israel concerning their posterity was at hand to be fulfilled;
-that the great preparatory work for the second coming of the Messiah was
-speedily to commence**; that the time was at hand for the gospel in its
-fullness to be preached in power unto all nations; that a people might
-be prepared with faith and righteousness, for the millennial reign of
-universal peace and joy.”* (Far West, August 3rd, 1838. Source: Orson
-Pratt, A Interesting Account of Several Remarkable Visions, and of the
-Late Discovery of Ancient American Records (Edinburgh, 1840) FACTS IN
-RELATION TO THE LATE DISCOVERY OF ANCIENT AMERICAN RECORDS
-<http://www.boap.org/LDS/Early-Saints/OPratt.html> )
+he was enrapt in a heavenly vision, and saw two glorious personages who
+exactly resembled each other in their features or likeness. He was
+informed that his sins were forgiven… And it pleased God on the evening
+of the **21st of September, A. D. 1823**, to again hear his prayers. For
+he had retired to rest as usual, only that his mind was drawn out in
+fervent prayer, and his soul was filled with the most earnest desire "to
+commune with some kind messenger who could communicate to him the
+desired information of his acceptance with God," and also **unfold the
+principles of the doctrine of Christ, according to the promise which he
+had received in the former vision**… This glorious being declared
+himself to be angel of God, sent forth by commandment, to communicate to
+him that his sins were forgiven and that his prayers were heard; and
+also, to bring the joyful tidings, **that the covenant which God made
+with ancient Israel concerning their posterity was at hand to be
+fulfilled; that the great preparatory work for the second coming of the
+Messiah was speedily to commence**; that the time was at hand for the
+gospel in its fullness to be preached in power unto all nations; that a
+people might be prepared with faith and righteousness, for the
+millennial reign of universal peace and joy.”* (Far West, August 3rd,
+1838. Source: Orson Pratt, A Interesting Account of Several Remarkable
+Visions, and of the Late Discovery of Ancient American Records
+(Edinburgh, 1840) FACTS IN RELATION TO THE LATE DISCOVERY OF ANCIENT
+AMERICAN RECORDS <http://www.boap.org/LDS/Early-Saints/OPratt.html> )
 
 1820, George A. Smith (September 5, 1855) *“Joseph Smith, jun… **At the
 age of 15** [1820] **he began to reflect seriously on the necessity of
@@ -127,36 +111,53 @@ having done, he informed me of great judgments which were coming upon
 the earth, with great desolations by famine, sword, and pestilence; and
 that **these grievous judgments would come on the earth in this
 generation.** Having related these things, he again ascended as he had
-done before.”* (<https://www.lds.org/scriptures/bofm/js?lang=eng>)
+done before.”* <https://www.lds.org/scriptures/bofm/js?lang=eng>
 
 <span id="17" class="anchor"></span>
 
 1829 March, <span id="1" class="anchor"></span> *“v.1 Behold, I say unto
-you, … my servant Joseph Smith, Jun. v.2 ...\***I, the Lord [Jesus
+you, … my servant Joseph Smith, Jun. v.2 ...**I, the Lord [Jesus
 Christ], am God,*** <span id="9" class="anchor"></span>*v.9 Behold,
-verily I [God] say unto you, I [God] have reserved those things which I
-[God] have entrusted unto you, my servant Joseph, for a wise purpose in
-me [God], and it shall be made known unto future generations; v.10 But
-this generation shall have my [God] word through you;  v.16 And behold,
-whosoever believeth on my words, them will I [God] visit with the
-manifestation of my [God] Spirit… *<span id="18"
-class="anchor"></span>*v.18 And their testimony shall also go forth unto
-**the condemnation of this generation** if they harden their hearts
-against them;*<span id="19" class="anchor"></span> * v.19 For a
-desolating scourge shall go forth among the inhabitants of the earth,
-and shall continue to be poured out from time to time, if they repent
-not, until the earth is empty, and **the inhabitants thereof are
-consumed away and utterly destroyed by the brightness of my [God]
+verily I say unto you, I have reserved those things which I have
+entrusted unto you, my servant Joseph, for a wise purpose in me, and it
+shall be made known unto future generations; v.10 But **this
+generation** shall have my word through you;  v.16 And behold, whosoever
+believeth on my words, them will I visit with the manifestation of my
+Spirit… *<span id="18" class="anchor"></span>*v.18 And their testimony
+shall also go forth unto **the condemnation of this generation** if they
+harden their hearts against them;*<span id="19" class="anchor"></span>
+* v.19 For a desolating scourge shall go forth among the inhabitants of
+the earth, and shall continue to be poured out from time to time, if
+they repent not, until the earth is empty, and **the inhabitants thereof
+are consumed away and utterly destroyed by the brightness of my
 coming.**”* [(D&C
 5:1-2,9-10,16,18-19)](https://www.lds.org/scriptures/dc-testament/dc/5.1-2,9-10,16,18-19?lang=eng#9)
-**\***NOTE: At this time Joseph Smith was teaching the Trinity. It
-wasn’t till Joseph met [Sidney
-Rigdon](http://www.sidneyrigdon.com/features/campbell.htm) of the
-[Campbellite
-Faith](https://www.dialoguejournal.com/wp-content/uploads/sbi/articles/Dialogue_V05N02_73.pdf)
-that his doctrine changed. See: Book of Commandments, Lecture of Faith
-\#5; also read the Q&A at the end of Lecture \#5.
-<https://archive.org/stream/latterdaysaintsm01unse#page/122/mode/2up/search/%22latter+day%22>
+
+1830-1834 Coming of the Son of Man: *“ When I contemplate the rapidity
+with which the great and glorious day of the coming of the Son of Man
+advances, when He shall come to receive His Saints unto Himself, where
+they shall dwell in His presence, and be crowned with glory and
+immortality: when I consider that **soon** the heavens are to be shaken,
+and the earth tremble and reel to and fro; and that the heavens are to
+be unfolded as a scroll when it is rolled up; and that every mountain
+and island are to flee away, I cry out in my heart, What manner of
+persons ought we to be in all holy conversation and godliness! You
+remember the testimony which I bore in the name of the Lord Jesus,
+**concerning the great work which He has brought forth in the last
+days.** You know my manner of communication, how that in weakness and
+simplicity, **I declared to you what the Lord had brought forth by the
+ministering of His holy angels to me for this generation.** I pray that
+the Lord may enable you to treasure these things in your mind, for I
+know that His Spirit will bear testimony to all who seek diligently
+after knowledge from Him. I hope you will search the Scriptures to see
+whether these things are not also consistent with those things which the
+ancient Prophets and Apostles have written. Your brother, etc. JOSEPH
+SMITH”*
+
+(Teachings of the Prophet Joseph Smith, by Joseph Smith. Compiled by
+Joseph Fielding Smith Church Historian. DHC--[Documentary] History of
+the Church. Section One 1830-34, p.29
+<http://www.boap.org/LDS/Joseph-Smith/Teachings/T4.html>)
 
 1830 March, *"...Those who gain this divine witness from the Holy Spirit
 will also come to know by the same power that **Jesus Christ is the
@@ -183,13 +184,13 @@ of the earth, which shall take hold of the inhabitants thereof, and
 shall eat their flesh, and shall cause maggots to come in upon them, and
 their tongues shall be stayed that they shall not utter against me, and
 their flesh shall fall from off their bones, and their eyes from their
-sockets…. [T]he beasts of the forest, and the fowls of the air, shall
+sockets…. The beasts of the forest, and the fowls of the air, shall
 devour them up: And that great and abominable church, which is the whore
 of all the earth, shall be cast down by devouring fire.”* ([Book of
 Commandments](http://josephsmithpapers.org/paperDetails/book-of-commandments-1833?p=23#!/paperSummary/book-of-commandments-1833&p=67),
 Chapter XXIX: verse 10, 18-24, pp. 62-63)
 
-1830 December 7,  *“v.15 The poor and the meek shall have the gospel
+1830 December 7, *“v.15 The poor and the meek shall have the gospel
 preached unto them, and **they shall be looking forth for the time of my
 coming, for it is nigh at hand.***<span id="26" class="anchor"></span>
 *v.26 Lift up your hearts and be glad**, your redemption draweth
@@ -239,7 +240,7 @@ Man.”* [(D&C 45:
 16-62)](https://www.lds.org/scriptures/dc-testament/dc/45.16-62?lang=eng#48)
 
 1831 March 15, **[1846 second coming prediction]** *“… all who believed
-the new bible [BOM] would see ***Christ within fifteen years***,*
+the new bible [BOM] would see **Christ within fifteen years**,*
 [15+1831=1846] *and all who did not would absolutely be destroyed and
 dam’d.”* (High Priest Martin Harris, The Telegraph, Painesville, OH,
 [March 15, 1831](http://www.sidneyrigdon.com/dbroadhu/OH/paintel2.htm),
@@ -247,23 +248,18 @@ vol. 2, no. 39)
 
 <http://www.sidneyrigdon.com/dbroadhu/OH/paintel2.htm>
 
-1831 May 7, *“v.5 \***Thus saith the Lord [Jesus Christ]; for *I am
-God*, and have sent mine Only Begotten Son** into the world for the
-redemption of the world, and have decreed that he that receiveth him
-shall be saved, and he that receiveth him not shall be damned—* <span
-id="6" class="anchor"></span>*v.6 And they have done unto the Son of Man
-even as they listed; and he has taken his power on the right hand of his
+1831 May 7, *“v.5 **Thus saith the Lord [Jesus Christ]; for *I am God*,
+and have sent mine Only Begotten Son** into the world for the redemption
+of the world, and have decreed that he that receiveth him shall be
+saved, and he that receiveth him not shall be damned—* <span id="6"
+class="anchor"></span>*v.6 And they have done unto the Son of Man even
+as they listed; and he has taken his power on the right hand of his
 glory, and now reigneth in the heavens, and will reign till he descends
 on the earth to put all enemies under his feet, **which time is nigh at
 hand**—*<span id="7" class="anchor"></span> *v.7 I, the Lord God, have
 spoken it; but **the hour and the day no man knoweth, neither the angels
 in heaven, nor shall they know until he comes.*** [(D&C
-49:5-7)](https://www.lds.org/scriptures/dc-testament/dc/49.5-7?lang=eng#6) \*NOTE:
-At this time Joseph Smith was teaching the trinity. It wasn’t till
-Joseph met [Sidney
-Rigdon](http://www.sidneyrigdon.com/features/campbell.htm) of the
-[Campbellite](https://www.dialoguejournal.com/wp-content/uploads/sbi/articles/Dialogue_V05N02_73.pdf)
-Faith that his doctrine changed. See Book of Commandments.
+49:5-7)](https://www.lds.org/scriptures/dc-testament/dc/49.5-7?lang=eng#6)
 
 1831 June 4, “*I saw Joseph Smith the Prophet when he first came to
 Kirtland, and was with him in the first conference held in that place,
@@ -316,8 +312,8 @@ Heading)](https://www.lds.org/scriptures/dc-testament/dc/132)
 fallen state, knoweth not the purposes and **the privileges of my holy
 priesthood**. but ye shall know when ye receive a fulness by reason of
 the anointing: For it is my will, that in time, **ye should take unto
-you WIVES of the Lamanites and Nephites, that their posterity may become
-WHITE, Delightsome and Just**, for even now their females are more
+you Wives of the Lamanites and Nephites, that their posterity may become
+White, Delightsome and Just**, for even now their females are more
 virtuous than the gentiles. *
 
 *Gird up your loins and be **prepared for the mighty work of the Lord to
@@ -334,8 +330,8 @@ powers of men under the curse of sin, in all the world.*
 * Verily I say unto you, that **the day of vexation and vengeance is
 nigh** at the doors of this nation, when wicked, ungodly and daring men
 will rise up in wrath and might, and go forth in anger, like as the dust
-is driven by [a] terrible wind; and they will be the means of the
-destruction of the government, and cause the death and misery of man[y]
+is driven by a terrible wind; and they will be the means of the
+destruction of the government, and cause the death and misery of many
 souls, but **the faithful among my people shall be preserved in holy
 places, during all these tribulations.”*** (Revelation by Joseph Smith;
 Polygamy with the Native Americans Indians. 17 July 1831, Jackson Co.,
@@ -360,20 +356,19 @@ Garden of Eden. When Adam and Eve were driven out, they dwelt in
 [Adam-ondi-Ahman](http://www.ldschurchtemples.com/adamondiahman/).
 <http://www.ldschurchtemples.com/independence/>
 
-1831 September 11, Did Joseph Smith prophecy his own down fall? <span
-id="29" class="anchor"></span> *“v.34 Behold, the Lord requireth the
-heart and a willing mind; and **the willing and** **obedient shall eat
-the good of the land of Zion in these last days**. v.35 And the
-rebellious shall be cut off out of the land of Zion, and shall be sent
-away, and shall not inherit the land.  v.38 For it shall come to pass
-that the inhabitants of Zion shall judge all things pertaining to Zion.
- v.39 **And liars and hypocrites shall be proved by THEM, and they who
-are not Apostles and Prophets shall be known.”*** [(D&C
+1831 September 11, <span id="29" class="anchor"></span>*“v.34 Behold,
+the Lord requireth the heart and a willing mind; and **the willing and**
+**obedient shall eat the good of the land of Zion in these last days**.
+v.35 And the rebellious shall be cut off out of the land of Zion, and
+shall be sent away, and shall not inherit the land.  v.38 For it shall
+come to pass that the inhabitants of Zion shall judge all things
+pertaining to Zion.  v.39 **And liars and hypocrites shall be proved by
+Them, and they who are not Apostles and Prophets shall be known.”***
+[(D&C
 64:29-39)](https://www.lds.org/scriptures/dc-testament/dc/64.29-39?lang=eng)
 
-1831 November 1, Revelation received from the Lord to Joseph Smith:
-*“v.12 **Prepare ye, prepare ye for that which is to come, for the Lord
-is nigh**.”* [(D&C
+1831 November 1, *“v.12 **Prepare ye, prepare ye for that which is to
+come, for the Lord is nigh**.”* [(D&C
 1:9-16)](https://www.lds.org/scriptures/dc-testament/dc/1.9-16?lang=eng)
 
 1831 November 1, *“v.37 Search these commandments, for they are true and
@@ -381,8 +376,8 @@ faithful, and **the prophecies and promises which are in them shall all
 be fulfilled.** v.38 What I the Lord have spoken, I have spoken, and I
 excuse not myself; and though the heavens and the earth pass away, my
 word shall not pass away, but shall all be fulfilled, whether by mine
-own voice or **by the voice of my servants, it is the same**.”* [D&C
-1:37-38](https://www.lds.org/scriptures/dc-testament/dc/1.37-38?lang=eng#36)
+own voice or **by the voice of my servants, it is the same**.”* [(D&C
+1:37-38)](https://www.lds.org/scriptures/dc-testament/dc/1.37-38?lang=eng#36)
 
 1831 November 3, D&C 133 The Saints are commanded to prepare for the
 Second Coming… come to Zion, and prepare for the great day of the Lord
@@ -391,8 +386,8 @@ the midst of heaven, saying: Prepare ye the way of the Lord, and make
 his paths straight, **for the hour of his coming is nigh--** **v.18 When
 the Lamb shall stand upon Mount Zion**, and with him a **hundred and
 forty-four thousand**,* [sounds like the Jehovah Witness] *having his
-Father’s name written on their foreheads.* [D&C
-133:17,18](https://www.lds.org/scriptures/dc-testament/dc/133.17,18?lang=eng#16)
+Father’s name written on their foreheads.* [(D&C
+133:17,18)](https://www.lds.org/scriptures/dc-testament/dc/133.17,18?lang=eng#16)
 (Note: Mount Zion is Independence, Missouri)
 
 1831 December 1, Joseph Smith and Sidney Rigdon were working on a
@@ -401,18 +396,18 @@ to go on a mission for a season. The Prophet Joseph Smith recorded:
 *“From this time until the 8th or 10th of January, 1832, myself and
 Elder Rigdon continued to preach in Shalersville, Ravenna, and other
 places, setting forth the truth, vindicating the cause of our Redeemer;
-**showing that the day of vengeance was coming *upon this generation*
-like a thief in the night**; that prejudice, blindness and darkness
-filled the minds of many, and caused them to persecute the true Church,
-and reject the true light; by which means we did much towards allaying
-the excited feelings which were growing out of the scandalous letters
-then being published in the Ohio Star, at Ravenna, by the
-before-mentioned apostate, Ezra Booth. On the 10th of January, I
-received the following revelation [*[*D&C
-73*](https://www.lds.org/scriptures/dc-testament/dc/73?lang=eng)*]
-making known the will of the Lord concerning the Elders of the Church
-until the convening of the next conference.”* (History of the Church,
-vol. 1, p.241)
+**showing that the day of vengeance was coming upon This Generation like
+a thief in the night**; that prejudice, blindness and darkness filled
+the minds of many, and caused them to persecute the true Church, and
+reject the true light; by which means we did much towards allaying the
+excited feelings which were growing out of the scandalous letters then
+being published in the Ohio Star, at Ravenna, by the before-mentioned
+apostate, Ezra Booth. On the 10th of January, I received the following
+revelation* [(D&C
+73)](https://www.lds.org/scriptures/dc-testament/dc/73?lang=eng) *making
+known the will of the Lord concerning the Elders of the Church until the
+convening of the next conference.”* (History of the Church, vol. 1,
+p.241)
 
 1832 July, Signs of the Times: “*FOREIGN NEWS. It is a day of strange
 appearances. Every thing indicates something more than meets the eye.
@@ -460,17 +455,17 @@ Temple]*](http://mit.irr.org/files/joseph-smiths-missouri-temple-prophecy.pdf)
 cloud shall be even the glory of the Lord [Second Coming], which shall
 fill the house. v.31 … which house shall be **built unto the Lord in
 this generation**, upon the consecrated spot as I have appointed.”*<span
-id="32" class="anchor"></span> * *[100+1832=1932] [D&C
-84:1-5,31,32](https://www.lds.org/scriptures/dc-testament/dc/84.1-5,31,32?lang=eng#1)
+id="32" class="anchor"></span> * *[100+1832=1932] [(D&C
+84:1-5,31,32)](https://www.lds.org/scriptures/dc-testament/dc/84.1-5,31,32?lang=eng#1)
 
-“v.37 *Search these commandments, for they are true and faithful, and
-the prophecies and promises which are in them shall all be fulfilled.
-v.38 What I the Lord have spoken, I have spoken, and I excuse not
-myself; and though the heavens and the earth pass away, my word shall
-not pass away, but shall all be fulfilled, whether by mine own voice or
-by the voice of my servants, it is the same. v.37 For behold, and lo,
-the Lord is God, and the Spirit beareth record, and the record is true,
-and the truth abideth forever and ever. Amen.”* [(D&C
+Note: “v.37 *Search these commandments, for they are true and faithful,
+and the prophecies and promises which are in them **shall all be
+fulfilled**. v.38 What I the Lord have spoken, I have spoken, and I
+excuse not myself; and though the heavens and the earth pass away, my
+word shall not pass away, but shall all be fulfilled, whether by mine
+own voice or by the voice of my servants, it is the same. v.37 For
+behold, and lo, the Lord is God, and the Spirit beareth record, and the
+record is true, and the truth abideth forever and ever. Amen.”* [(D&C
 1:37-39)](https://www.lds.org/scriptures/dc-testament/dc/1.37-39?lang=eng)
 
 The Lord, speaking through Malachi, said that “*he would send his
@@ -518,7 +513,7 @@ saith the Lord.** Amen”* [D&C
 <http://josephsmithpapers.org/paperSummary/revelation-25-december-1832-dc-87#!/paperSummary/revelation-25-december-1832-dc-87&p=1>
 
 1832 December 27, <span id="87" class="anchor"></span>“*v.87 **For not
-many *days* hence** and the earth shall tremble and reel to and fro as a
+many Days hence** and the earth shall tremble and reel to and fro as a
 drunken man; and the sun shall hide his face, and shall refuse to give
 light; and the moon shall be bathed in blood; and the stars shall become
 exceedingly angry, and shall cast themselves down as a fig that falleth
@@ -533,12 +528,12 @@ the face of the land and the Lost Ten Tribes will be gathered to
 Missouri, and that The people of the Lord… have already commenced to
 gather together to Zion, which is in the state of Missouri; therefore I
 declare unto you the warning which the Lord has commanded me to declare
-unto **this generation**…. The hour of His judgment is Come. He exhorts
-all to Flee to Zion, before the overflowing scourge overtake you, for
-**there are now those living upon the earth whose eyes shall not be
-closed in death** [100+1833=1933] until they see all these things, which
-I have spoken, fulfilled.”* (Joseph Smith, Jr., Jan. 4, 1833, [History
-of the Church, vol. 1, chapter 22, p.
+unto **this generation**…. The hour of **His judgment is Come.** He
+exhorts all to **Flee to Zion**, before the overflowing scourge overtake
+you, for **there are now those living upon the earth whose eyes shall
+not be closed in death** [100+1833=1933] until they see all these
+things, which I have spoken, fulfilled.”* (Joseph Smith, Jr., Jan. 4,
+1833, [History of the Church, vol. 1, chapter 22, p.
 315-316)](http://www.boap.org/LDS/History/History_of_the_Church/Vol_1)
 
 1833 January 23, Joseph Smith:<span id="420" class="anchor"></span>
@@ -579,8 +574,8 @@ The assembling of the Jews at Jerusalem,
 
 are passing in rapid succession, that some will turn to God and live.
 Such strange movements of men; such dreadful sickness; oh! such fearful
-looking for the ***wrath of God to be poured out upon *this
-generation****, together with the evidence of Holy writ, ought ***to
+looking for the ***wrath of God to be poured out upon This
+Generation***, together with the evidence of Holy writ, ought ***to
 convince every man in the world, that the end is near***; that the
 harvest is ripe, and that the angels are reaping down the earth!
 
@@ -638,10 +633,10 @@ stakes, for the curtains or the strength of Zion.*<span id="22"
 class="anchor"></span> *v. 22 Behold, **it is my will, that all** they
 who call on my name, and worship me according to mine everlasting
 gospel, **should gather together, and stand in holy places**;*<span
-id="23" class="anchor"></span> *v. 23** And *prepare for the revelation
-which is to come, [second coming]* when the veil of the covering of my
+id="23" class="anchor"></span> *v. 23** And prepare for the revelation
+which is to come, [second coming] when the veil of the covering of my
 temple, in my tabernacle, which hideth the earth, shall be taken off,
-and *all flesh shall see me* together.”***
+and all flesh shall see me together.”***
 [(D&C101:16,17,20-23)](https://www.lds.org/scriptures/dc-testament/dc/101.16,17,20-23?lang=eng#16)
 NOTE: This revelation was given one month after being expulsed from
 Jackson Co., MO. Nine years later Joseph Smith declared *"The whole of
@@ -649,12 +644,11 @@ America is Zion from North to South"* (History of the Church, Vol. 6, p.
 318). Brigham Young declared that Zion was, *"...at the City of the
 Great Salt Lake, in the valleys of the Mountains, in the settlements of
 Utah Territory."* [(Journal of Discourses, vol. 2,
-p.253)](http://journalofdiscourses.com/2/40) Why does God keep changing
-his mind; did he lie?
+p.253)](http://journalofdiscourses.com/2/40)
 
 1833 December 18, Hyrum Smith received two patriarchal blessings, one
 from his father, Joseph Smith Sr. and one from his brother, Joseph Smith
-Jr. Hyrum Smith *“…**Thou shalt *live* to see thy Redeemer come in the
+Jr. Hyrum Smith *“…**Thou shalt Live to see thy Redeemer come in the
 clouds of heaven** and thou shalt lift up thy head with gladness and
 (have?) the holy throng with uplifted hands. Thou shalt stand before
 Kings and Rulers and bear testimony of the Lord…”* (Given by Joseph
@@ -669,40 +663,24 @@ mules, asses, camels, dromedaries, and swift beasts…”* (Given by Joseph
 Smith Jr. in Kirtland, December 18, 1833 and recorded September 1835.
 Oliver Cowdery, clerk and recorder.
 <http://josephsmithpapers.org/paperSummary/blessing-for-hyrum-smith-circa-15-28-september-1835>
-)
-
-Note: Hyrum didn’t stand before Kings and Rulers, with a abundance of
-riches of the earth, he didn’t live to an old age, he didn’t see the
-Redeemer come; instead he died un-shielded by God in the Carthage Jail,
-June 27, 1844. [(Carthage
+) [(Carthage
 Trial)](http://law2.umkc.edu/faculty/projects/ftrials/carthage/carthagehome.html)
 
-1834, The Church changed its name to *The Church of the Latter Day
+1834, The Church changed its name to *The Church of the **Latter Day**
 Saints; omitting Jesus Christ altogether*. Was it because of the
-teaching of the 1890 second coming? Manifesto on Polygamy: Since 1840,
-The Church fought the US Government over the polygamy issue. Were the
-Saints waiting for the second coming to resolve this issue? [*(An
-Address to All Believers in
-Christ,*](http://www.utlm.org/onlinebooks/address5.htm) David Whitmer,
-Richmond, Missouri, pub. 1887)
-
-1833 Book of Commandments; now known a D&C. “Church of Christ”
-
+teaching of the 1890 second coming? 1833 Book of Commandments; now known
+a D&C. “Church of Christ”
 <http://josephsmithpapers.org/paperSummary/book-of-commandments-1833?locale=eng&p=5>
-
 1835 Doctrine and Covenants “Jesus Christ name was removed”
-
 <http://josephsmithpapers.org/paperSummary/doctrine-and-covenants-1835?locale=eng&p=9>
 
 1834 April 3, “*v.1 Verily I [Jesus Christ] say unto you, my friends, I
 give unto you counsel, and a commandment, concerning all the properties
 which belong to the order which I commanded to be organized and
-established, to be a **United Order**, and an **everlasting order** for
+established, to be a **United Order**, and an E**verlasting Order** for
 the benefit of my church, and for the salvation of men **until I come**
 [Second Coming].*” ([D&C
 104:1](https://www.lds.org/scriptures/dc-testament/dc/104.1?lang=eng))
-The United Order did fail and was disbanded, and it’s been over 180
-years and Christ still has not returned.
 
 1834 circa August, DEAR FRIENDS AND NEIGHBORS. [Citizens of Painesville,
 Ohio]
@@ -715,7 +693,7 @@ that **day is near** at hand; and that it is necessary to be prepared to
 meet the Son of God when he shall appear in the clouds of heaven… Now, I
 will attempt to show, that the day of the Lord: the coming of the Son of
 God, is near at hand: probably **he will make his appearance in the
-clouds of heaven within the *present generation***…”* [100+1835=1935]
+clouds of heaven within the Present Generation**…”* [100+1835=1935]
 Edward Partridge” [Presiding Bishop]
 
 BISHOP PARTRIDGE'S LETTER. Time and space forbid lengthy comments on
@@ -1058,8 +1036,8 @@ Ohio, September, 1834, No. 24,
 say unto you, **the coming of the Lord draweth nigh**, and it overtaketh
 th*<span id="5" class="anchor"></span>*e world as a thief in the night.
  v.5 Therefore, gird up your loins, that you may be the children of
-light, and that day shall not overtake you as a thief.* [D&C
-106:4–5](https://www.lds.org/scriptures/dc-testament/dc/106.4-5?lang=eng#3)
+light, and that day shall not overtake you as a thief.* [(D&C
+106:4–5)](https://www.lds.org/scriptures/dc-testament/dc/106.4-5?lang=eng#3)
 
 1835 February 1st, (Letter written by Orson Pratt to:) *“Brother Oliver
 Cowdery, Brother Barns and myself [Orson Pratt] preached twice in the
@@ -1130,10 +1108,10 @@ the winding up scene take place.”*** In connection with this event, was
 related by my brother Dimick Huntington, the fact that when Joseph and
 Hyrum Smith submitted in their feelings to consent to give themselves up
 to the state mob at Nauvoo Illinois, after they had passed the
-Mississippi River.  Joseph said ****"if they shed my blood it shall
-shorten this work 10 years.”** That taken from 1891 would reduce the
-time to **1881 which if the true time within which the Saviour should
-come**** much must be crowded into 6
+Mississippi River.  Joseph said ***"if they shed my blood it shall
+shorten this work 10 years.”*** That taken from 1891 would reduce the
+time to ***1881 which if the true time within which the Saviour should
+come*** much must be crowded into 6
 years.[](http://www.shields-research.org/General/LDS_Leaders/1stPres/Joseph_Smith/56_Year.htm#19.)
 (Oliver B. Huntington, Autobiography II: 129 (Typescript, BYU Special
 Collections)) [10-1891=1881]
@@ -1190,11 +1168,11 @@ by Joseph Smith Sr., between 1834-1840) [Note: In 1891, Johnathan would
 be 101]
 
 1835 May 4, [Isaac Morley](http://en.wikipedia.org/wiki/Isaac_Morley),
-*“Thou shalt ***live* to see the heavens open** and **see thy God in the
+*“Thou shalt **Live to see the heavens open** and **see thy God in the
 flesh**… **Thy days shall be many**, and thou shalt yet do great good in
 the cause of thy God. And if thou wilt desire it, thou shalt have thy
-desire,- **thou shalt *live* to see the Son of Man come** in the clouds
-of heaven, and the **winding up scene of this generation…
+desire,- **thou shalt Live to see the Son of Man come** in the clouds of
+heaven, and the **winding up scene of this generation…
 ***[100+1835=1935] *Thy wife shall also be blessed and receive an equal
 portion with thee: she shall be faithful in prayer, and if thy children
 are afflicted with sickness in thy absence, she shall have [Priesthood]
@@ -1249,8 +1227,7 @@ Advocate, July, 1835, pp. 149,150.
 1836 November The Latter Day Glory
 
 <https://archive.org/stream/latterdaysaintsm01unse#page/n405/mode/2up>
-
-344
+pp. 401-404
 
 1836 December 15, Lorenzo Snow, “*thou shalt have **power to translate
 thyself** from one **plannet [planet] to annother [another]** - power to
@@ -1274,13 +1251,12 @@ hundred and forty four thousand *****[sounds like the Jehovah Witness]**
 *and shall **stand with the Lamb on Mount Zion** and shall be able to
 sing thy song.”* [(Patriachal
 Blessings](http://user.xmission.com/~research/mormonpdf/blessingsbyjssr.pdf)
-by Joseph Smith Sr., between 1834-1840) [NOTE: My grandfather was named
-after Lorenzo also his grandson!]
+by Joseph Smith Sr., between 1834-1840)
 
 1837 January 3rd {Wilford Woodruff made no profession of faith until
 1830, his life was not devoid of religion. From reading the Bible he had
 felt that ***“the Church of God would be re-established upon the earth’
-and that he should live to see it.”*** (History of Wilford Woodruff,
+and that he should Live to see it.”*** (History of Wilford Woodruff,
 Deseret News, 7 July 1858, p 81) On 29 December 1833 he heard the
 preaching of two Mormon Elders… and two days later was baptized… The
 Third Journal Book of Wilford Woodruff, January 3, 1837: *“there being
@@ -1314,11 +1290,11 @@ Jessee)](http://en.wikipedia.org/wiki/Dean_C._Jessee)
 1837 February 22, Willard Richards, *“Thou shalt become mighty to the
 pulling down the strong holds of Satan, and building up the **Redeemer's
 kingdom in the Last days**…**Thou shalt have great possessions, for the
-treasures** [treasure seeking] **of the earth shall be at thy command…
-Death shall have no power over thee, for thou shalt tarry and behold thy
-Redeemer coming in the clouds, and shall see him in the flesh**; shall
-have power to **bring thy kindred into the kingdom**, who shall
-acknowledge thee a man of God…”* [(Patriachal
+treasures of the earth shall be at thy command… Death shall have no
+power over thee, for thou shalt tarry and behold thy Redeemer coming in
+the clouds, and shall see him in the flesh**; shall have power to
+**bring thy kindred into the kingdom**, who shall acknowledge thee a man
+of God…”* [(Patriachal
 Blessings](http://user.xmission.com/~research/mormonpdf/blessingsbyjssr.pdf)
 by Joseph Smith Sr., between 1834-1840)
 
@@ -1330,13 +1306,12 @@ this generation**.* [100+1837=1937] *Thou shalt **remain on the earth to
 behold the Savior come in** the clouds of heaven. Thou shalt be
 **numbered with the 100 & 44.000 ***[sounds like the Jehovah Witness]
 *that shall stand upon **Mount Zion** and sing a song… Thou shalt have
-access to the **treasures hid in the sand ***[treasure seeking] *to
-assist thy necessities. An angel of God shall show thee the **treasures
-of the earth ***[treasure seeking] *that thou mayest have riches to
-assist thee in gathering many orphan children, to Zion... No power shall
-stay thee, **at thy word the winds shall be stayed**,* *Thou shalt
-**walk upon the waters**. At thy command the **waters shall be
-divided**…* [(Journal of Wilford
+access to the **treasures hid in the sand** to assist thy necessities.
+An angel of God shall show thee the **treasures of the earth** that thou
+mayest have riches to assist thee in gathering many orphan children, to
+Zion... No power shall stay thee, **at thy word the winds shall be
+stayed**,* *Thou shalt **walk upon the waters**. At thy command the
+**waters shall be divided**…* [(Journal of Wilford
 Woodruff,](http://www.ristow.us/foswiki/pub/Genealogy/WilfordWoodruffsJournalKrautsPioneerPress/Woodruff_Wilfords_Journal_-_Krauts_Pioneer_Press.pdf)
 April 15, 1837 1:142) [(Patriachal
 Blessings](http://user.xmission.com/~research/mormonpdf/blessingsbyjssr.pdf)
@@ -1555,14 +1530,15 @@ desolation of all our Cities, Forts, and Strong Holds -- an entire
 annihilation of our race, except such as embrace the Covenant, and are
 numbered with Israel... Now, Mr. Sunderland.... **I will state as a
 prophesy, that there will not be an unbelieving Gentile upon this
-continent *50 years hence*; [1888] and if they are not greatly scourged,
-and in a great measure overthrown, *within five or ten years from this
-date*, [1893-1898] then the Book of Mormon will have *proved itself
-false*"*** ([*Mormonism
+continent 50 years hence; [1888] and if they are not greatly scourged,
+and in a great measure overthrown, within five or ten years from this
+date, [1893-1898] then the Book of Mormon will have proved itself
+false"*** ([*Mormonism
 Unveiled*](http://www.solomonspalding.com/docs/prt1838b.htm#pg15b)*—Truth
 Vindicated*, by Parley P. Pratt, p. 15) Note: This tract was reprinted
 in the book “*Writings of Parley P. Pratt*,” but this entire prophecy
 was deleted without any indication.
+(<http://www.sidneyrigdon.com/dbroadhu/LDS/wasp1.htm>)
 
 1839 January 27, Charles W. Hubbard, *“thou shalt look and **see the
 Redeemer**…* *“That thou hast **seen Him**…* *thou shalt live to **see
@@ -1608,9 +1584,9 @@ that in **ten years** there would not be an unbeliever in some of our
 large cities. At the April General Conference, 1840, the Prophet Joseph,
 while speaking of some of the elders on this matter said they were
 mistaken; the Lord would not come in ten years; no, nor in twenty years;
-no, nor in thirty years; no, nor in forty years, and **it will be
-*almost* fifty years before the Lord will come.*** [50+1840=1890]
-([Lunman Shurtliff
+no, nor in thirty years; no, nor in forty years, and **it will be almost
+fifty years before the Lord will come.*** [50+1840=1890] ([Lunman
+Shurtliff
 Autobiography,](http://www.boap.org/LDS/Early-Saints/LShurtliff.html)
 1807-1847, BYU - special Collections Library, page 44;  LDS Historical
 Library)
@@ -1626,19 +1602,27 @@ by Joseph Smith Sr., between 1834-1840) [Note: In 1891, George would be
 1841 March 24, *“To The Saints Abroad: The First Presidency of the
 Church of Jesus Christ of Latter Day Saints, anxious to promote the
 prosperity of said church, feel it their duty to call upon the saints
-who reside out of this county, to make preparations to come in, without
-delay, This is important, and should be attended to by all who feel an
-interest in the prosperity of this the corner stone of Zion
+who reside out of this county, to make preparations to **come in,
+without delay**, This is important, and should be attended to by all who
+feel an interest in the prosperity of this the corner stone of Zion
 [Independence, Missouri]. Here the Temple must be raised, the University
 be built, and other edifices erected which are necessary for the great
-work of the last days; and which can only be done by a concentration of
-energy, and enterprise. Let it therefore be understood, that all the
+work of the **last days**; and which can only be done by a concentration
+of energy, and enterprise. Let it therefore be understood, that all the
 stakes, excepting those in this county, and in Lee county, Iowa, are
 discontinued, and the saints instructed to settle in this county as soon
 as circumstances will permit. Joseph Smith.”* (Joseph Smith, City of
 Nauvoo, Hancock Co., Ill., March 24th 1841. Times and Seasons. "Truth
 Will Prevail." Vol. 2 No. 15, City of Nauvoo, Ill. June 1st, 1841
 <http://www.centerplace.org/history/ts/v2n15.htm> )
+
+1842-43 Earth Now Groaning Under Corruption: *The earth is groaning
+under corruption, oppression, tyranny and bloodshed; and **God is coming
+out of His hiding place**, as He said He would do, to vex the nations of
+the earth. JOSEPH SMITH”* (Teachings of the Prophet Joseph Smith, by
+Joseph Smith. Compiled by Joseph Fielding Smith, Church Historian.
+Documentary History of the Church. Section Five 1842-43, p.253
+<http://www.boap.org/LDS/Joseph-Smith/Teachings/T5.html> )
 
 1842 Feb. 2, Francis Moon, letter to the editor: *“Cheer up! thou poor
 despondent saint, thou who art sometimes ready to say "My Lord delayeth
@@ -1663,8 +1647,8 @@ lay before our readers the following letter from Elder Freeman
 Nickerson, the presiding elder of the church of Latter Day Saints in
 Boston, who believes, to use his own words, that ***"wickedness will
 soon be swept from the earth, and that the day of universal
-righteousness will set in *during this generation*, when our offices
-shall all become peace, and our exactions righteousness:"*** ([Freeman
+righteousness will set in During This Generation, when our offices shall
+all become peace, and our exactions righteousness:"*** ([Freeman
 Nickerson](http://en.wikipedia.org/wiki/Freeman_Nickerson) (Presiding
 Elder), Boston, April 11, 1842. Times and Seasons, Edited by Joseph
 Smith, "Truth will prevail", Vol. III. No. 14. City of Nauvoo, ILL. May
@@ -1673,8 +1657,8 @@ Smith, "Truth will prevail", Vol. III. No. 14. City of Nauvoo, ILL. May
 1842 May 14th, To the Editor of the Daily Ledger: *“I request the
 citizens and authorities of the **city of Boston**, to open a house for
 the servant of the people, that the Lord hath sent to this city to
-**warn the people of the destruction which will *take place in this
-generation, that is now on the earth, ****[100+1842=1942] ***and teach
+**warn the people of the destruction which will take place in this
+generation, that is now on the earth, ***[100+1842=1942] ***and teach
 them how they may escape, and come through and abide the day of the
 second coming of Christ, to reign on the earth a thousand years.**
 Quench not the spirit, despise not prophesying, prove all things, hold
@@ -1699,9 +1683,9 @@ attended to hear his lectures fully prove. *
 
 *On Sunday [June 5th] **Mr. Adams lectured on the second coming of
 Christ**, and gave much light on that subject, **showing that it would
-take place before this present generation shall pass away.** He proved
+take place before this Present Generation shall pass away.** He proved
 also, if the Bible is true, that **the second advent must take place
-*before 1880***… He also declared, as it was in the days of Noah, so now
+before 1880**… He also declared, as it was in the days of Noah, so now
 God had called a prophet, viz. Joseph Smith, to **warn this generation**
 to prepare for the coming of the Son of Man, and labored to show the
 injustice of destroying any generation without first warning them… A
@@ -1727,7 +1711,7 @@ in his ordinary way, or hear the stranger [Elder Green]; upon which a
 unanimous vote was given for the stranger, **who then presented unto
 them the scriptures of the Old and New Testament as being full of
 prophets, prophesyings, and revelations to be fulfilled in the last
-days, which are the days of *this generation*, and proposed to show from
+days, which are the days of This Generation, and proposed to show from
 the scriptures that these things will be literally fulfilled**…”* (TIMES
 AND SEASONS, Edited by John Taylor, CONFERENCE MINUTES, Vol. IV. No. 3,
 City of Nauvoo, ILL. Dec. 15, 1842
@@ -1751,11 +1735,11 @@ Spencer](http://en.wikipedia.org/wiki/Orson_Spencer) “*My Dear Sir,
 …there is not a more contented and cheerful people to be found. Families
 will consent to let father and brother go out to preaching, when their
 daily bread is barely supplied for a few months. Believing as we do,
-that **these are the last days, and that signal matters await *this
-generation*: and that the harvest must be gathered soon**, if at all,
-you must not marvel if we do not all at once become rich, and build
-large houses, and enclose productive farms.-If riches were our object,
-we might readily gratify the most ambitious grasp. We possess every
+that **these are the last days, and that signal matters await This
+Generation: and that the harvest must be gathered soon**, if at all, you
+must not marvel if we do not all at once become rich, and build large
+houses, and enclose productive farms.-If riches were our object, we
+might readily gratify the most ambitious grasp. We possess every
 facility for being rich; but we long to behold the beauty of the Lord,
 and inquire in his holy Temple.”*
 
@@ -1789,9 +1773,9 @@ never heard a more able sermon. …Joe Smith is a Prophet chosen of God to
 lay the foundation and be instrumental in carrying on the great work.
 That this Gospel must be preached unto all people before the **second
 coming of Christ, which from the signs of the times it is expected will
-be in *this generation*…*** [1843+100=1943] A Seeker after Truth.”
-(TIMES AND SEASONS, edited by John Taylor "TRUTH WILL PREVAIL" Vol. IV,
-No. 8, CITY OF NAUVOO, ILL. March 1, 1843
+be in This Generation…*** [1843+100=1943] A Seeker after Truth.” (TIMES
+AND SEASONS, edited by John Taylor "TRUTH WILL PREVAIL" Vol. IV, No. 8,
+CITY OF NAUVOO, ILL. March 1, 1843
 <http://www.centerplace.org/history/ts/v4n08.htm> )
 
 1843 April 2, **[1890 second coming prediction]** <span id="14"
@@ -1990,7 +1974,7 @@ name of the Lord that Christ will not Come in forty years ***[1884+] *&
 if God ever spake by my mouth he will not in that length of time & Jesus
 Christ never did reveal to any man the precise time that he would come,
 go & read the scriptures & you cannot find any thing that specified the
-exact time he would come & all who say so are fals teachers.”* (Wilford
+exact time he would come & all who say so are false teachers.”* (Wilford
 Woodruff Journal, March 10, 1844.
 [*http://www.boap.org/LDS/Parallel/1844/10Mar44.html*](http://www.boap.org/LDS/Parallel/1844/10Mar44.html)
 *)*
@@ -2019,11 +2003,10 @@ fifty years ago, [1945–50=1895] for their wickedness.”* (Peter Crawley,
 The Essential Parley P. Pratt, 1990 ed., p. 142
 <http://signaturebookslibrary.org/essential-parley-p-pratt-12/> )
 
-1845 July 15, The Latter-Day Saints Millennial Star, No.3, Vol.6; THE
-LAST DAYS pages 33-35
+1845 July 15, The Latter-Day Saints Millennial Star, No.3, Vol.6, THE
+LAST DAYS pages 33-35;
 
 SIGHS OF THE TIMES, pages 158-160
-
 <https://books.google.com/books?id=ymktAAAAYAAJ&pg=PA99&lpg=PA99&dq=Zebedee+Coltrin+last+days&source=bl&ots=sRYD7kyLTP&sig=DXNZFOjTZGBPVbZUtXMp65YHMbQ&hl=en&sa=X&ei=kEGsVNu0KNfWoATRoIGYBw&ved=0CDQQ6AEwBDgK#v=onepage&q=last%20days&f=false>
 
 1845 Dec. 15, “*The Great Proclamation of the Twelve Apostles of the
@@ -2041,7 +2024,7 @@ receive the gospel of Christ, and come to the assistance of the saints
 in **carrying out the great principles and plan of salvation, and the
 accomplishment of that work which will end in the coming of Messiah**,
 and great preparation of the marriage supper of the Lamb. Such a call
-and proclamation is necessary, in order that **the *present generation*
+and proclamation is necessary, in order that **the Present Generation
 may be left without excuse, as the great events of the last days are
 being fulfilled.** In all ages of the world, when the cup of the
 iniquity of any people was full, and the Lord was about to bring his
@@ -2110,7 +2093,7 @@ p.40)](http://journalofdiscourses.com/4/6)
 1857 Aug. 2*, "But if you cannot learn to keep the commandments of God
 in Great Salt Lake City...how do you expect to keep them in Jackson
 County?-for we are sure to go back there as we exist."* (President Heber
-C. Kimball, Salt Lake City, Journal of Discourses, Vol. 5. p. 134e.
+C. Kimball, Salt Lake City, Journal of Discourses, Vol. 5, p. 134e.
 <http://jod.mrm.org/5/129> )
 
 1857 December 17, Heber C. Kimball: *“They are holy places, and they
@@ -2121,7 +2104,7 @@ dedication of the Prophet of the living God. Talk to me about my having
 any dubiety on my mind about these things being fulfilled.—I am just as
 confident of it as I am that I am called to be a saviour of men, and no
 power can hinder it.”* (President Heber C. Kimball, Journal of
-Discourses, Vol 6. p. 190c <http://jod.mrm.org/6/185>)
+Discourses, Vol. 6, p. 190c <http://jod.mrm.org/6/185>)
 
 1857 August 2, Elias Smith still believed in the Second Coming *“I
 expect to live to be an old man, and to go back with the saints to the
@@ -2134,8 +2117,8 @@ that: “*…our enemies, they have cursed themselves with all the curses
 they can bear; and the cursings that are on them they never can get off,
 neither can those who sustain them. **The Church and kingdom to which we
 belong will become the kingdom of our God and his Christ, and brother
-Brigham Young will become President of the United States**. [Voices
-responded, "Amen." ] And I tell you he will be something more; but we do
+Brigham Young will become President of the United States**. (Voices
+responded, "Amen.") And I tell you he will be something more; but we do
 not now want to give him the name: but he is called and ordained to a
 far greater station than that, and he is foreordained to take that
 station, and he has got it; and I am Vice-President, and brother Wells
@@ -2145,12 +2128,14 @@ flesh.”*
 (Heber C. Kimball, Journal of Discourses vol. 5, p.219, September 6,
 1857 <http://journalofdiscourses.com/5/35> )
 
-1859 May 22, "Jesus has been upon the earth a great more times than you
+1859 May 22, *"Jesus has been upon the earth a great more times than you
 are aware of. When Jesus makes his next appearance upon the earth, but
 few in this church will be prepared to receive him and see him face to
-face and converse with him, but he will come to his temple." (Brigham
+face and converse with him, but he will come to his temple."* (Brigham
 Young, General Conference, Salt Lake City, May 22, 1859, Journal of
 Discourses 7:142 <http://journalofdiscourses.com/7/21>)
+
+Also see: 1893 April 8,19
 
 1859 Sept. 10, “[Christ appearance in New Jerusalem his] next appearance
 will be among the distressed and nearly vanquished sons of Judah. At the
@@ -2201,7 +2186,7 @@ Temple]; but we cannot go back until we have built some good houses.”*
 1861 March 10, *"Who is there that is prepared for this movement back to
 the center stake of Zion, and where are the architects amongst us that
 are qualified to erect this temple and the city that will surround it…
-And let me remind you that **it is predicted that this generation shall
+And let me remind you that **it is predicted that This Generation shall
 not pass away till a temple shall be built**, and the glory of the Lord
 rest upon it, according to the promises."* (George A. Smith, March 10,
 1861, Journal of Discourse, Vol. 9, p. 71 <http://jod.mrm.org/9/66>)
@@ -2210,7 +2195,7 @@ rest upon it, according to the promises."* (George A. Smith, March 10,
 84:1-5,31,32](https://www.lds.org/scriptures/dc-testament/dc/84.1-5,31,32?lang=eng#1))
 Apostle George A. Smith stated: *"Who is there that is prepared for this
 move back to the centre stake of Zion.... let me remind you that it is
-predicted that **this generation shall not pass away till a temple shall
+predicted that **This Generation shall not pass away till a temple shall
 be built**, and the glory of the Lord rest upon it, according to the
 promises…"* (Journal of Discourses, vol. 10, p. 344
 <http://journalofdiscourses.com/10/63> )
@@ -2255,8 +2240,8 @@ Note: some of Joseph Morris followers;
 
 1864 October 23, *“The day is near when a Temple shall be reared in the
 Center Stake of Zion, and the Lord has said his glory shall rest on that
-House **in this generation**, that is in the generation in which the
-revelation was given, which is upwards of thirty years ago.”* (Elder
+House **in This Generation, that is in the generation in which the
+revelation was given,** which is upwards of thirty years ago.”* (Elder
 George Q. Cannon, Journal of Discourses, Vol. 10, p. 344,
 <http://jod.mrm.org/10/340>)
 
@@ -2331,11 +2316,11 @@ upon the oppressors of his people. (Orson Pratt, Mill Star, 28:633-34,
 
 1870 April 10, (see 1832 September 22, [D&C
 84:1-5,31,32](https://www.lds.org/scriptures/dc-testament/dc/84.1-5,31,32?lang=eng#1))
-Apostle Orson Pratt: *“We have ... confidence in returning to Jackson
+Apostle Orson Pratt: ***“We have ... confidence in returning to Jackson
 county... There are many of the old stock still living, whose faith in
 returning to Jackson County, and the things that are coming, is as firm
-and fixed as the throne of the Almighty.”* (Journal of Discourses, vol.
-13, p. 138 <http://journalofdiscourses.com/13/16> )
+and fixed as the throne of the Almighty.”*** (Journal of Discourses,
+vol. 13, p. 138 <http://journalofdiscourses.com/13/16> )
 
 1870 May 5, (see 1832 September 22, [D&C
 84:1-5,31,32](https://www.lds.org/scriptures/dc-testament/dc/84.1-5,31,32?lang=eng#1))
@@ -2353,28 +2338,28 @@ Discourses, vol. 13, p. 362 <http://journalofdiscourses.com/13/45> )
 1871 April 9, (see 1832 September 22, [D&C
 84:1-5,31,32](https://www.lds.org/scriptures/dc-testament/dc/84.1-5,31,32?lang=eng#1))
 Apostle Orson Pratt: “*... a temple will be reared on the spot that has
-been selected, [by the *finger* of the Lord] and the corner-stone of
-which has been laid, in the generation when this revelation was given;
-we just as much expect this as we expect the sun to rise in the morning
-and set in the evening.... But says the objector, "thirty-nine years
-have passed away." What of that? The generation has not passed away; all
+been selected, [by the Finger of the Lord] and the corner-stone of which
+has been laid, **in the generation when this revelation was given**; we
+just as much expect this as we expect the sun to rise in the morning and
+set in the evening.... But says the objector, "thirty-nine years have
+passed away." What of that? **The generation has not passed away; all
 the people that were living thirty-nine years ago have not passed away;
-but before they do pass away this will be fulfilled.”* (Journal of
+but before they do pass away this will be fulfilled.”*** (Journal of
 Discourses, vol. 14, p. 275 <http://journalofdiscourses.com/14/38> )
 
 1874 June 14, (see 1832 September 22, [D&C
 84:1-5,31,32](https://www.lds.org/scriptures/dc-testament/dc/84.1-5,31,32?lang=eng#1))
 Apostle Orson Pratt: *“God said, in the year 1832, before we were driven
-out of Jackson County, in a revelation ... that before that generation
-should all pass away, a house of the Lord should be built in that
-county.... This was given forty-two years ago. The generation then
-living was not only to commence a house of God in Jackson County,
+out of Jackson County, in a revelation ... that **before that
+generation** should all pass away, a house of the Lord should be built
+in that county.... This was given forty-two years ago. The generation
+then living was not only to commence a house of God in Jackson County,
 Missouri, but was actually to complete the same,... if you believe in
 these revelations you just as much expect the fulfillment of the
 revelation as of any one that God has ever given in these latter
 times,... we Latter-day Saints expect to return to Jackson County and to
-build a Temple there before the generation that was living forty-two
-years ago has all passed away. Well, then, the time must be **pretty
+build a Temple there **before the generation that was living forty-two
+years ago has all passed away.** Well, then, the time must be **pretty
 near** when we shall begin the work.”* (Journal of Discourses, vol. 17,
 p. 111 <http://journalofdiscourses.com/17/16> )
 
@@ -2390,34 +2375,34 @@ behold that day, and will return ... according to the promise"***
 <http://journalofdiscourses.com/17/41> )
 
 1875 March, “… the elders were preaching that the Savior would come to
-earth "soon not more than sixteen years according to the revelations
-Joseph Smith had received."39 …In the next year, 1876, the Church
+earth *"soon not more than sixteen years according to the revelations
+Joseph Smith had received."*39 …In the next year, 1876, the Church
 published a new edition of the Doctrine and Covenants, which divided the
 revelations into numbered verses and added twenty-six sections,
 including, for the first time, the Joseph Smith millennial prophecy as
 Section 130.41 Thus, the Church officially endorsed Joseph Smith's
 prophetic timetable, renewing hope in the 1891 prophecy. …In 1877,
 Brigham Young died. His successor, John Taylor, left no doubt of his
-literal approach to modern prophecy. "All that he [God] has said . . .
+literal approach to modern prophecy. *"All that he [God] has said . . .
 through ancient prophets and through Joseph Smith are true.... I will
 prophecy that they will take place as sure as God lives, and they are
-approaching very rapidly upon us." George Q. Cannon, his first
+approaching very rapidly upon us."* George Q. Cannon, his first
 counselor, told the Saints that step by step all of Joseph Smith's
-prophecies were coming to fruition "just as sure as [if] God [had]
-spoken it." Sixtus E. Johnson, bishop in Kanab, "urged the Saints to
-prepare for the judgments of the Almighty upon the wicked Nations." And
-in 1878, Lorenzo Snow predicted that "the time is speedily coming" when
-the Saints would return "to Jackson County, Missouri. . . . There are
-many hundreds and hundreds within the sound of my voice that will live
-to go back to Jackson County and build a holy temple to the Lord our
-God."42 …An 1879 edition of the Doctrine and Covenants, edited by Orson
-Pratt, contained footnotes for the first time. Canonized at October 1880
-general conference, it provided explicit and official endorsement of the
-millennial expectation.46 Pratt's footnote for Section 130 highlighted
-Joseph Smith's eighty-five-year millennial prophecy, adding in the
-commentary section confirmation of the fateful time frame "near the end
-of the year 1890." Pratt also cross-referenced the revelation: "See
-prophecy of Joseph, uttered
+prophecies were coming to fruition *"just as sure as [if] God [had]
+spoken it."* Sixtus E. Johnson, bishop in Kanab, *"urged the Saints to
+prepare for the judgments of the Almighty upon the wicked Nations."* And
+in 1878, Lorenzo Snow predicted that *"the time is speedily coming"*
+when the Saints would return *"to Jackson County, Missouri. . . . There
+are many hundreds and hundreds within the sound of my voice that will
+live to go back to Jackson County and build a holy temple to the Lord
+our God."*42 …An 1879 edition of the Doctrine and Covenants, edited by
+Orson Pratt, contained footnotes for the first time. Canonized at
+October 1880 general conference, it provided explicit and official
+endorsement of the millennial expectation.46 Pratt's footnote for
+Section 130 highlighted Joseph Smith's eighty-five-year millennial
+prophecy, adding in the commentary section confirmation of the fateful
+time frame *"near the end of the year 1890."* Pratt also
+cross-referenced the revelation: "See prophecy of Joseph, uttered
 
 39"Record of Andrew Jackson Allen," 105, 21 March 1875; C. Jacobson,
 Diary, 1876, as quoted in Reinwand, "An Interpretive Study of Mormon
@@ -2661,10 +2646,11 @@ the flame of devouring fire.... the slain of the Lord will be many.”*
 (Apostle Wilford Woodruff, April 21, 1879, in Millennial Star, vol. 41,
 p. 241) [100+1879=1979]
 
-1879 May 31, In May 1879 Charles L. Walker recorded that Joseph Smith’s
-contemporary, one O. M. Allen, professed he heard ***“the prophet Joseph
-say that those who lived until the year 1881 would see the judgments go
-forth on the wicked that would make their soul sicken to see and hear of
+1879 May 31, **[1881-91 second coming prediction]** In May 1879 Charles
+L. Walker recorded that Joseph Smith’s contemporary, one O. M. Allen,
+professed he heard ***“the prophet Joseph say that those who lived until
+the year 1881 would see the judgments go forth on the wicked that would
+make their soul sicken to see and hear of
 them.”***[42](http://signaturebookslibrary.org/?p=5708#42) <span id="42"
 class="anchor"></span>(Larson and Larson, Diary of Charles Walker,
 1:486, 31 May 1879. Allen’s 1881 date may stem from Dimick Huntington’s
@@ -2678,11 +2664,11 @@ Lee Library, 2:129. <http://signaturebookslibrary.org/?p=5708> )
 1879 December 27, ***"There will be no United States in the year
 1890."*** (Apostle Wilford Woodruff, Snowflake, Arizona, Dec. 27, 1879)
 (Note: Council of 50; The White Horse Prophecy; The Everlasting United
-Order; The overthrow of the US Government; Second Coming and Polygamy,
+Order; The overthrow of the US Government; Second Coming and Polygamy;
 solved!)
 
-1880 Jan 9, Apostle Orson Pratt writes to his children that “*the city
-of New Jerusalem will be constructed by April 1950.” *[Independence,
+1880 Jan 9, Apostle Orson Pratt writes to his children that **“*the city
+of New Jerusalem will be constructed by April 1950.”**** *[Independence,
 Missouri]
 
 1880 Jan 26, Wilford Woodruff’s “Wilderness Revelation” *“The nation is
@@ -2723,24 +2709,24 @@ have to be fulfilled as in **the generation in which we live**.”*
 June 6th, 1880 Journal of Discourse, Vol. 21, p. 124
 <http://jod.mrm.org/21/121>)
 
-1880 March 21, “**the coming of the Son of Man was nigh, even at the
+1880 March 21, *“**the coming of the Son of Man was nigh, even at the
 doors**, and that there were thousands living in [the] mountains at
 [that] time that would see the son of God come and many would not taste
-death.” ([54](http://signaturebookslibrary.org/?p=5708#54) Wilford
+death.”* ([54](http://signaturebookslibrary.org/?p=5708#54) Wilford
 Woodruff, St. George, Utah. Larson and Larson, Diary of Charles Walker,
 2:544, 20 Mar. 1881)
 
 1881 Aug. 14, Wilford Woodruff continued to warn church members of the
 approaching “hour.” At an 1881 conference in Manti he promised ***“that
-thousands of the children of the latter day saints would not die but
-would live to see the Saviour come.”*** (Larson and Larson, Diary of
+thousands of the children of the latter day saints would not Die but
+would Live to see the Saviour come.”*** (Larson and Larson, Diary of
 Charles L. Walker, 2:563-64, 14 Aug. 1881.,
 <http://signaturebookslibrary.org/?p=5708> )
 
 1882 April 9, “**A terrible day of reckoning is approaching the nations
 of the earth; the Lord is coming out of His hiding place to vex the
 inhabitants thereof; and the destroyer of the Gentiles, as prophesied
-of, is *already on his way*.** …The internal fires of revolution are
+of, is already on his way.** …The internal fires of revolution are
 already smouldering in this nation, and they need but a spark to set
 them in a flame. Already are agencies at work in the land calculated to
 subvert and overthrow every principle of rule and government; already is
@@ -2884,7 +2870,7 @@ Quinn, page 34
 )
 
 1888 October, Apostle Franklin D. Richards proclaimed at October 1888
-general conference that ***many children then alive would yet be alive
+general conference that ***many children then Alive would yet be Alive
 to see the redemption of Zion and the Second Coming***, a repetition of
 an 1885 promise by Lorenzo Snow. A full year later in November 1889,
 Woodruff confirmed that ***"the Lord will never give a revelation to
@@ -3102,39 +3088,33 @@ In the afternoon President Woodruff spoke. He said “*the Lord was about
 to **prune his vineyard for the last time**, and that sprouts would fall
 like grain before the mower.”* END [100+1890=1990]
 
-NOTE: I found this article as I was doing genealogical research on
-gt-grandfather John Speer who immigrated in 1882 to San Francisco. In
-the same column there is a lengthy article of “*the state/condition of
-the Mormon Saints, Polygamy and that the Government should stop the
-immigration to Utah and suppress the traffic now going on with the
-ignorant, unsuspicious foreigners by the Mormons. The Mormon Church is
-paying the passage to this country, of their converts, and then pays
-their Railroad fare to SLC.”*
+Note: I found this article as I was doing genealogical research on
+gt-grandfather who immigrated in 1882 to San Francisco. In the same
+column there is a lengthy article of “*the state/condition of the Mormon
+Saints, Polygamy and that the Government should stop the immigration to
+Utah and suppress the traffic now going on with the ignorant,
+unsuspicious foreigners by the Mormons. The Mormon Church is paying the
+passage to this country, of their converts, and then pays their Railroad
+fare to SLC.”*
 
-NOTE: This is how my Christensen family came to America in 1889. They
-were enlisted in the “Mormon Expedition” on the steamship Milo, which
-left Copenhagen on Aug. 8, 1889. The Milo was chartered by the Church of
-Jesus Christ of Latter-Day Saints. The Saints were then transported by
-train into the Salt Lake Valley. My gt-grandfather David Hopkins was
-baptized a member in 1856, immigrated to America in 1872 and living in
-Soda Springs, Idaho. David’s son Thomas married Emma Christensen at the
-Logan Temple, Sept. 2, 1894. Emmas great-grandfather Jens Hansen was in
-the Charles C. Rich Company; These 126 individuals were in the company
-when it began its journey from the outfitting post on the Elkhorn River
-about 27 miles west of Winter Quarters, Nebraska. Departed 21 June 1847
-Arrived 2 October 1847. This was the second group of wagons and forth
-wagon train to arrive in the Salt Lake Great Basin. On the LDS website
-it is stated that *Jens Hansen was at the end of a mission for the
-church, and a captain of ten* [teams of wagons]. 
-<http://history.lds.org/overlandtravels/pioneerDetail?lang=eng&pioneerId=35548>
+Note: The[ Perpetual Emigration
+Fund](http://heritage.uen.org/resources/Wcd6fb3d6206c9.htm) was
+established to aid the poor convert in “The Gathering of Zion” between
+1850-1890 [(D&C
+57:1-3)](https://www.lds.org/scriptures/dc-testament/dc/57.1-3?lang=eng)
+This is how some of my family members came to America; one family in
+1872 and another family in 1889. An earlier gt-grandfather was in the
+[Charles C. Rich
+Company](https://history.lds.org/overlandtravels/companies/250/charles-c-rich-company-1847).
 
-NOTE: After reading all of these revelations from God, can you imagine
+Note: After reading all of these revelations from God, can you imagine
 the urgency my (our) ancestors must have felt to arrive with Zion, in
 the Great Salt Lake Basin, before the 1890 second coming! But none of
 this happened and it’s still being preached to every generation since
 Joseph’s original 1820 revelations from God. Josephs prophesy of the
 second coming has gradually died by attrition during the early 1900s;
 eventually forgotten by the 2nd & 3rd generation of Latter Day Saints.
+
 *“Verily, thus saith the Lord, let Zion rejoice, for this is Zion—the
 pure in heart; therefore, let Zion rejoice, while all the wicked shall
 mourn. For behold, and lo, **vengeance cometh speedily** upon the
@@ -3247,8 +3227,8 @@ Statesman. (Austin, Tex.), June 18, 1891, Image 7.)
 1891 November 1, *“‘And whatsoever they shall speak when moved upon by
 the Holy Ghost shall be Scripture, shall be the will of the Lord, shall
 be the mind of the Lord, shall be the word of the Lord, shall be the
-voice of the Lord, and the power of God unto salvation’ [*[*D&C
-68:4*](https://www.lds.org/scriptures/dc-testament/dc/68.4?lang=eng#3)*].*
+voice of the Lord, and the power of God unto salvation’* [(D&C
+68:4)](https://www.lds.org/scriptures/dc-testament/dc/68.4?lang=eng#3)
 
 *“It is by that power that we have led Israel. By that power President
 Young presided over and led the Church. By the same power President John
@@ -3286,18 +3266,18 @@ know not.”*
 (Larson and Larson, Diary of Charles L. Walker, p.731
 <http://rationalfaiths.com/even-fifty-six-years-wind-scene/> )
 
-In 1892, President Wilford Woodruff, counseled St. George members
-***that the dispensation "was to be cut short" with little time for
-preparation "before the coming of the Son of Man and the ushering in of
-the great millennium."*** When he dedicated the Salt Lake Temple in
-April 1893, he prophesied that the ***"Millennium is near at hand"***
-and that the temple was to receive Christ at his return after the
-preparation and perfection of the Saints. In 1894, he wrote his
-expectation that ***the day had arrived for angels to descend, "in their
-hands sharp Sides . . . sent forth to Visit the Earth... to poor [sic]
-out the Judgements of God upon the wicked and will Continue untill the
-scene is wound up."*** In 1897 he was still prophesying that ***"many in
-the flesh at the time would see the savior."***76
+1892, President Wilford Woodruff, counseled St. George members ***that
+the dispensation "was to be cut short" with little time for preparation
+"before the coming of the Son of Man and the ushering in of the great
+millennium."*** When he dedicated the Salt Lake Temple in April 1893, he
+prophesied that the ***"Millennium is near at hand"*** and that the
+temple was to receive Christ at his return after the preparation and
+perfection of the Saints. In 1894, he wrote his expectation that ***the
+day had arrived for angels to descend, "in their hands sharp Sides . . .
+sent forth to Visit the Earth... to poor [sic] out the Judgements of God
+upon the wicked and will Continue untill the scene is wound up."*** In
+1897 he was still prophesying that ***"many in the flesh at the time
+would see the savior."***76
 
 76Woodruff, *Journal,* 9:133, 307; see also ibid., 9:300; Woodruff
 quoted in Walker, *Diary,* 2:742; Stuy, *Collected Discourses,* 3:275;
@@ -3307,24 +3287,23 @@ also Walker, *Diary,* 2:868; Study, *Collected Discourses, 3:424;*
 History, Vol. 22, No. 2, 1996, p. *30*
 <http://digitalcommons.usu.edu/cgi/viewcontent.cgi?article=1027&context=mormonhistory>
 
-1893 April 8, The [Salt Lake
+1893 April 8, (see: May 22, 1859) The [Salt Lake
 Temple](http://en.wikipedia.org/wiki/Salt_Lake_Temple) was dedicated in
-Apr. 6, 1893, just in time for Jesus return.
-
-END OF THE WORLD. It is Fixed by the Mormons for an Early Day in the
-Month of April. *"If the teaching? of the Mormon faith are true,"* Bald
-Judge Edward F. Colburn, a prominent Republican of Salt Lake City, to a
-Boston Herald man, *“it is scarcely worth while for the army of
-candidates to flock to Washington after offices, because after the **6th
-of April** there won't be any offices to fill. **That is the date fixed
-by Brigham Young for the second coming of Christ, an event which is to
-transpire when the great temple of the Mormon Church*** ***is fully
-completed**. The cornerstone was laid on April 6, 1854, and the final
-shake-hands and wind-up were to come precisely forty years thereafter.
-Old Brigham was shrewd enough to fix the time far enough in advance,
-when he knew that he would be out of the way of heating the criticism on
-his unreliability as a prophet.”* (The Dalles Oregon times-mountaineer.,
-April 08, 1893, Image 1)
+Apr. 6, 1893, just in time for Jesus return. END OF THE WORLD. It is
+Fixed by the Mormons for an Early Day in the Month of April. *"If the
+teaching? of the Mormon faith are true,"* Bald Judge Edward F. Colburn,
+a prominent Republican of Salt Lake City, to a Boston Herald man, *“it
+is scarcely worth while for the army of candidates to flock to
+Washington after offices, because after the **6th of April** there won't
+be any offices to fill. **That is the date fixed by Brigham Young for
+the second coming of Christ, an event which is to transpire when the
+great temple of the Mormon Church*** ***is fully completed**. The
+cornerstone was laid on April 6, 1854, and the final shake-hands and
+wind-up were to come precisely forty years thereafter. Old Brigham was
+shrewd enough to fix the time far enough in advance, when he knew that
+he would be out of the way of heating the criticism on his unreliability
+as a prophet.”* (The Dalles Oregon times-mountaineer., April 08, 1893,
+Image 1)
 
 <http://chroniclingamerica.loc.gov/lccn/sn93051669/1893-04-08/ed-1/seq-1/#date1=1890&index=0&date2=1894&searchType=advanced&language=&sequence=0&lccn=sn93051669&words=Christ+coming+second&proxdistance=5&state=&rows=20&ortext=&proxtext=&phrasetext=second+coming+of+Christ&andtext=&dateFilterType=yearRange&page=1>
 
@@ -3333,15 +3312,15 @@ Also see (San Francisco Call, Volume 73, Number 116, Sunday, 26 March
 
 http://cdnc.ucr.edu/cgi-bin/cdnc?a=d&d=SFC18930326.2.212&srpos=3&e=-------en--20--1--txt-txIN-mormon%2b%22second+coming%22+------
 
-1893 April 19, *“**Second Coming Postponed:** The great Mormon Temple at
-Salt Lake was completed and dedicated on April 6th. It has been forty
-years in building, and is one of the most beautiful structures in the
-world. **Fifty thousand saints** from all parts of the world witnessed
-the ceremony, which the late Brigham Young said **would occur at the
-second coming of Christ.** However, a timely revelation was received by
-the present President, saying **the second coming of the Saviour was
-postponed.**”* (The Pacific commercial advertiser, Honolulu, Hawaiian
-Islands, April 19, 1893, Image 5)
+1893 April 19, (see: May 22, 1859) *“**Second Coming Postponed:** The
+great Mormon Temple at Salt Lake was completed and dedicated on April
+6th. It has been forty years in building, and is one of the most
+beautiful structures in the world. **Fifty thousand saints** from all
+parts of the world witnessed the ceremony, which the late Brigham Young
+said **would occur at the second coming of Christ.** However, a timely
+revelation was received by the present President, saying **the second
+coming of the Saviour was postponed.**”* (The Pacific commercial
+advertiser, Honolulu, Hawaiian Islands, April 19, 1893, Image 5)
 <http://chroniclingamerica.loc.gov/lccn/sn85047084/1893-04-19/ed-1/seq-5/#date1=1893&index=1&rows=20&words=Fifty+saints+thousand&searchType=basic&sequence=0&state=Hawaii&date2=1893&proxtext=Fifty+thousand+saints&y=15&x=10&dateFilterType=yearRange&page=1>
 
 Also see: (The Hawaiian gazette, Honolulu, Oahu, Hawaii, April 25, 1893,
@@ -3349,10 +3328,10 @@ Page 8, Image 9, Second Coming Postponed)
 
 <http://chroniclingamerica.loc.gov/lccn/sn83025121/1893-04-25/ed-1/seq-9/#date1=1893&index=0&rows=20&words=Fifty+saints+thousand&searchType=basic&sequence=0&state=Hawaii&date2=1893&proxtext=Fifty+thousand+saints&y=15&x=10&dateFilterType=yearRange&page=1>
 
-Jesus said, "that evil servant shall say in his heart, My Lord delayeth
-His coming." (Matt. 14:48) The LORD said unto Joseph: "...and they shall
-say that Christ delayeth his coming until the end of the earth." (D&C
-45:26)
+Note: Jesus said, "that evil servant shall say in his heart, My Lord
+delayeth His coming." (Matt. 14:48) The LORD said unto Joseph: "...and
+they shall say that Christ delayeth his coming until the end of the
+earth." (D&C 45:26)
 
 1894 June *“Can you tell me where the people are who will be shielded
 and protected from these great calamities and judgments which are **even
@@ -3407,9 +3386,9 @@ watching the development of the work of God among the nations, and by
 noting the rapid fulfilment of significant prophecies, we may perceive
 the progressive evidence of the approaching event: ‘But the hour and the
 day no man knoweth, neither the angels in heaven, nor shall they know
-until he comes’ [*[*D&C
-49:7*](https://www.lds.org/scriptures/dc-testament/dc/49.7?lang=eng#6)*].
-His coming will be a surprise to those who have ignored His warnings,
+until he comes’* [(D&C
+49:7)](https://www.lds.org/scriptures/dc-testament/dc/49.7?lang=eng#6)
+*His coming will be a surprise to those who have ignored His warnings,
 and who have failed to watch. ‘As a thief in the night’ will be the
 coming of the day of the Lord unto the wicked”* (James E. Talmage, The
 Articles of Faith, 362–63; 42 Edition 1973).
@@ -3543,6 +3522,11 @@ Now here comes the spin! The sanitation of our church history.
 
 <http://www.shields-research.org/General/LDS_Leaders/1stPres/Joseph_Smith/56_Year.htm#2>.
 
+1940 Mar 29, First Presidency asks Apostle Joseph Fielding Smith to
+chair "Literature Censorship Committee authorized by Quorum of the
+Twelve last Thursday."
+<http://signaturebooks.com/2010/11/excerpts-elder-statesman/>
+
 1945 June, *“**When our leaders speak, the thinking has been done**.
 When they propose a plan–it is God’s plan. When they point the way,
 there is no other which is safe. When they give direction, it should
@@ -3646,12 +3630,12 @@ has a great love for all peoples. He is their friend and is considerate
 of their needs*. (President Spencer W. Kimball, Ensign, Nov. 1975)
 
 1978 May, *“For the prophecy came not in old time by the will of man:
-but holy men of God spake as they were moved by the Holy Ghost.”* [*2
+but holy men of God spake as they were moved by the Holy Ghost.”* [2
 Pet.
-1:19–21*](https://www.lds.org/scriptures/nt/2-pet/1.19-21?lang=eng#18)
+1:19–21](https://www.lds.org/scriptures/nt/2-pet/1.19-21?lang=eng#18)
 *Well, if prophecy is the most sure way of knowing what is to happen—and
 Isaiah said that the Lord had declared the end from the beginning*
-[*Isaiah 46:10*](https://www.lds.org/scriptures/ot/isa/46.10?lang=eng#9)
+[Isaiah 46:10](https://www.lds.org/scriptures/ot/isa/46.10?lang=eng#9)
 *—it’s all there when we understand it. And **so I think that if Jesus
 pronounced such judgment upon those who failed to understand the
 scriptures relating to his first coming, how would he feel toward us and
@@ -3714,9 +3698,8 @@ delusion. The Lord has warned and forewarned us against a day of great
 tribulation and given us counsel, through His servants, on how we can be
 prepared for these difficult times.
 
-Have we heeded His counsel?”
-
-Ezra Taft Benson, October 1980 General Conference
+Have we heeded His counsel?” (Ezra Taft Benson, October 1980 General
+Conference)
 
 1981 October 6, (It Must Come True) ***“The ultimate test of a true
 prophet is when he speaks in the name of the Lord, his words come to
@@ -3729,7 +3712,7 @@ presided over the 14 BYU Stake Conference… Elder McConkie believes that
 nor the lifetime of his children, and maybe not during the lifetime of
 his grandchildren.** He said that there is too much to be done before
 the Savior's return can take place… as we measure time, it is a **long
-way off**.”* **[100+1981=2081]**
+way off**.”* [100+1981=2081]
 
 1982 May, ***“Are we not witnessing the fulfillment of these signs
 today?*** …We constantly hear or read of wars and rumors of war*s.
@@ -3737,17 +3720,16 @@ Atheism, agnosticism, immorality, and dishonesty are flaunted in our
 society. Desertions, cruelty, divorce, and infidelity have become
 commonplace, leading to a disintegration of the family. Truly we live in
 the times of which the Savior spoke, when “the love of men shall wax
-cold, and iniquity shall abound.”*
-
-*Youth of Zion, do you realize you are living in the days of the
-fulfillment of these signs and wonders? **You are among those who will
-see many of these prophecies fulfilled.** Just as certain as was the
-destruction of the temple at Jerusalem and the scattering of the Jews,
-**so shall these words of the Savior be *certain to your generation*.
-***[**100+1982=2082]** *We know not the day nor the hour of His coming,
-but of this you may feel assured: **You stand close to the great day of
-the Lord!*** [(Pod-cast](http://speeches.byu.edu/?act=viewitem&id=92)
-President Ezra Taft Benson, [*Prepare Yourself for the Great Day of the
+cold, and iniquity shall abound.” Youth of Zion, do you realize you are
+living in the days of the fulfillment of these signs and wonders? **You
+are among those who will see many of these prophecies fulfilled.** Just
+as certain as was the destruction of the temple at Jerusalem and the
+scattering of the Jews, **so shall these words of the Savior be Certain
+to Your Generation. ***[**100+1982=2082]** *We know not the day nor the
+hour of His coming, but of this you may feel assured: **You stand close
+to the great day of the Lord!***
+[(Pod-cast](http://speeches.byu.edu/?act=viewitem&id=92) President Ezra
+Taft Benson, [*Prepare Yourself for the Great Day of the
 Lord*](https://www.lds.org/new-era/1982/05/prepare-yourself-for-the-great-day-of-the-lord?lang=eng)*,*
 New Era May 1982)
 
@@ -3782,7 +3764,7 @@ or sets his feet on Olivet, or utters his voice from an American Zion or
 a Jewish Jerusalem; **before** all flesh shall see him together;
 **before** any of his appearances, which taken together comprise the
 second coming of the Son of God—**before all these, there is to be a
-*secret appearance* to selected members of his Church.** He will come in
+Secret Appearance to selected members of his Church.** He will come in
 private to his prophet and to the apostles then living. Those who have
 held keys and powers and authorities in all ages from Adam to the
 present will also be present”* (Bruce R. McConkie, The Millennial
@@ -3801,21 +3783,18 @@ McConkie
 
 A New Witness for The Articles of Faith, 591)
 
-Neal A. Maxwell
-
-The Savior taught this in the parable of the fig tree whose tender new
-branches give a sign of the coming of summer. “So likewise,” **when the
-elect** shall see the signs of His coming “they shall know that he is
-near, even at the doors” ([JS—M
+1988 April, Neal A. Maxwell: The Savior taught this in the parable of
+the fig tree whose tender new branches give a sign of the coming of
+summer. “So likewise,” **when the elect** shall see the signs of His
+coming “they shall know that he is near, even at the doors” ([JS—M
 1:38–39](http://lds.org/scriptures/pgp/js-m/1.38-39?lang=eng#37); see
 also [Matt.
 24:32–33](http://lds.org/scriptures/nt/matt/24.32-33?lang=eng#31); [D&C
 45:37–38](http://lds.org/scriptures/dc-testament/dc/45.37-38?lang=eng#36)).
-
-1988 May “Over the sweep of Christian history, some believers have, by
-focusing on a few prophecies while neglecting others, prematurely
-expected the Second Coming. Today, while we are obviously closer to that
-great moment, we are in the same danger. . . . “In the context of such
+“Over the sweep of Christian history, some believers have, by focusing
+on a few prophecies while neglecting others, **prematurely expected the
+Second Coming**. Today, while we are obviously closer to that great
+moment, we are in the same danger. . . . “In the context of such
 cautions, I have no hesitancy in saying that there are some signs—but
 certainly not all— suggesting that ‘summer is nigh’ (Matthew 24:32)
 “Members of the Church need not and should not be alarmists. They need
@@ -3827,7 +3806,7 @@ May 1988, p.7, 9)
 been, I’m sure, a prophet of doom, or of doomsday. **Are we living in
 the last days**?\
 Gordon B. Hinckley: “***I don’t know**, but we better act as if we
-were*. **[My Prophet doesn’t know?]**\
+were*.\
 TC: Yeah.\
 GBH: “*Then we won’t have anything to worry about!”*\
 TC: That’s right.\
@@ -3883,11 +3862,11 @@ disasters, but an even greater cause of current “commotion” is
 spiritual.”* (Dallin H. Oaks, General Conference April 4, 2004)
 <https://www.lds.org/general-conference/2004/04/preparation-for-the-second-coming?lang=eng>
 
-2005 January, “Fear shall come upon all people. But you and I know that
+2005 January, *“Fear shall come upon all people. But you and I know that
 the Lord has prepared places of safety to which he is eager to guide
 us....It will be our choice whether or not to move up or stay where we
 are. But the Lord will invite and guide us upward by the direction of
-the Holy Ghost...” (Henry B. Eyring, Raise the Bar, BYU Idaho Talk -
+the Holy Ghost...”* (Henry B. Eyring, Raise the Bar, BYU Idaho Talk -
 January 2005)
 
 2008 April 5,
@@ -3906,8 +3885,7 @@ through the service we render, the lives we bless, and the souls we are
 privileged to help save. **You “are a chosen generation, a royal
 priesthood, an holy nation,”** and you can make a difference.”* [(1
 Peter 2: 9)](https://www.lds.org/scriptures/nt/1-pet/2.9?lang=eng#8)
-(Thomas S. Monson, General Conference, Priesthood Session. Note: Talk
-given with a since of sadness or heavy hearted.)
+(Thomas S. Monson, General Conference, Priesthood Session.)
 
 2008 April 30, Uploaded on YouTube: LDS Prophets warn us of the dangers
 Facing America.
@@ -3938,14 +3916,13 @@ takes away death, dries up tears, and ushers in a new era of peace, joy,
 and learning.”* (President Uchtdorf, *First Presidency Christmas
 Devotional*)
 
-2011 Second Coming of Jesus Christ, Author’s Note: *“I personally have
-been given the **promise in my Patriarchal Blessing** that I would be
-with those who shall return to Jackson County, Missouri, to assist in
-the building of that Holy Temple for the Second Coming of Jesus Christ.
-It may happen in this life or during the Millennium.”* (BOOK: Family
-History and Temples Including Grigg and Related Family Genealogies, By
-Dick Griggs, page 51.) Note: notice the distorted view of the
-Millennium.
+2011 Second Coming of Jesus Christ: *“I personally have been given the
+**promise in my Patriarchal Blessing** that I would be with those who
+shall return to Jackson County, Missouri, to assist in the building of
+that Holy Temple for the Second Coming of Jesus Christ. It may happen in
+this life or during the Millennium.”* (BOOK: Family History and Temples
+Including Grigg and Related Family Genealogies, By Dick Griggs, page
+51.)
 <https://books.google.com/books?id=2myR_qjAl6kC&pg=PA51&lpg=PA51&dq=Daniel+H.+Wells+second+coming&source=bl&ots=M-u5qL-u4f&sig=K0Xtiluf0fEptnfZz8XSLz-b_yY&hl=en&sa=X&ei=lA-vVKnUNoLpoAS1w4KwDw&ved=0CDwQ6AEwBQ#v=onepage&q=Daniel%20H.%20Wells%20second%20coming&f=false>
 
 2014 LDS Essay, Since the second coming didn’t happen in 1890 as
@@ -3960,7 +3937,7 @@ paragraph 12)
 
 <http://en.wikipedia.org/wiki/Second_Coming_(LDS_Church)>
 
-\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*
+<https://www.lds.org/topics/second-coming-of-jesus-christ>
 
 Is it so hard to comprehend that the early saints would believe in a
 1890 second coming of Christ?
@@ -4007,7 +3984,6 @@ thing follow not, nor come to pass,** that is the thing which the LORD
 hath not spoken, but the **prophet hath spoken it presumptuously**; thou
 shalt not **be afraid of him**.”* [(Deuteronomy
 18:20-22)](https://www.lds.org/scriptures/ot/deut/18.20-22?lang=eng)
-<https://www.lds.org/scriptures/ot/deut/18.20-22?lang=eng#19>
 
 Joseph F. Smith stated: *"Mormonism, as it is called, must stand or fall
 on the story of Joseph Smith. He was either a prophet of God, divinely
@@ -4024,20 +4000,7 @@ doctrines of false teachers will not stand the test when tried by the
 accepted standards of measurement, the scriptures."* (Doctrines of
 Salvation by Joseph F. Smith, pub. 1954, Vol. 1 p. 188. )
 
-If you’re a Mormon and you’re confused, it’s because you’re paying
-attention!
-
-*Dan Speer*
-
-George Daniel Speer Sr.
-
 Extra Research:
-
-<https://www.lds.org/topics/second-coming-of-jesus-christ>
-
-<http://mormonthink.com/QUOTES/mormonquotes.htm>
-
-<http://mormonthink.com/QUOTES/lastdays.htm>
 
 **Harmony Society:** Prophet Johann Georg Rapp (George Rapp) 1757–1847
 
@@ -4085,10 +4048,9 @@ formally dissolved in 1906.
 
 <http://en.wikipedia.org/wiki/George_Rapp>
 
-**Jehovah Witness:** In our church we kinda talk badly about Jehovah
-Witness and some of their beliefs. The Jehovah Witness have “five failed
-prophesy” about the 2nd coming. They (like the LDS) also have to
-sanitize their scriptures and doctrinal teachings.
+**Jehovah Witness:** The Jehovah Witness have “five failed prophesy”
+about the 2nd coming. They had to sanitize their scriptures and
+doctrinal teachings.
 
 *Studies In the Scriptures -* [*Thy Kingdom Come, 1908
 edition*](http://www.jwfacts.com/images/thy-kingdom-come-1911-p228.jpg)
@@ -4138,10 +4100,9 @@ Jones,](http://en.wikipedia.org/wiki/Jim_Jones) November 18,
 inhabitants of [Jonestown](http://en.wikipedia.org/wiki/Jonestown), 303
 of them children, died by suicide by drinking cyanide-laced
 grape-flavored [Flavor Aid](http://en.wikipedia.org/wiki/Flavor_Aid).
-NOTE: My Gt-grandparents John and Annie Speer are buried at [Evergreen
+NOTE: 412 unclaimed bodies of Jonestown are buried at [Evergreen
 Cemetery,](http://en.wikipedia.org/wiki/Evergreen_Cemetery_(Oakland,_California))
-Oakland, CA. 412 unclaimed bodies of Jonestown are also buried at
-Evergreen.
+Oakland, CA.
 
 **Branch Davidians:** Prophet [David
 Koresh,](http://en.wikipedia.org/wiki/David_Koresh#Ascent_to_leadership_of_the_Branch_Davidians)
@@ -4193,192 +4154,61 @@ Christ. (The spirit of democracy, Woodsfield, Ohio, July 27, 1853, Image
 **Christopher Mark Nemelka:**
 <http://www.marvelousworkandawonder.com/tsp/download/LEHI.pdf>
 
-The[ Perpetual Emigration
-Fund](http://heritage.uen.org/resources/Wcd6fb3d6206c9.htm) was
-established to aid the poor convert in “The Gathering of Zion” between
-1850-1890 [(D&C
-57:1-3)](https://www.lds.org/scriptures/dc-testament/dc/57.1-3?lang=eng)
+-End-
 
-To my children, If I lead you astray you will be ok:
+Tag phrases:
 
-v.54 Hence came the saying abroad among the people, that the Son of God
-hath atoned for original guilt, wherein the sins of the parents cannot
-be answered upon the heads of the children, for they are whole from the
-foundation of the world.
-<https://www.lds.org/scriptures/pgp/moses/6.54?lang=eng#53>
+rising generation\
+not taste death\
+I come quickly\
+the day soon at hand\
+there were those present who should see\
+the day of vexation and vengeance is nigh\
+The end is nigh\
+this generation shall not all pass away\
+not many years shall pass away\
+the hour is nigh\
+Thou shalt live to see thy Redeemer\
+that day is near\
+the coming of the Lord draweth nigh\
+the coming of the Lord, which was nigh\
+shall see the Savior\
+see the Saviour come\
+winding up scene\
+not die before the second coming\
+till the coming of the Son of Man\
+stand when the Lord unveils His face\
+live to see the Son of Man\
+stand upon the earth, in the flesh, when the Savior comes\
+stand in the flesh and see Jesus\
+caught up to meet him\
+remain on the earth to behold the Savior\
+see the Redeemer come in the clouds\
+see the Redeemer in the flesh\
+stand in the flesh\
+Son of Man will not come in the clouds of heaven till I am eighty-five
+years old\
+shalt see the son of man on Earth\
+Christ will not Come in forty years\
+this generation shall not pass away\
+son of Man will not come in the clouds\
+before the generation then living had passed\
+There will be some that will live to behold that day\
+second coming\
+live to see the Saviour come\
+until the Coming of the Son of Man\
+vengeance cometh speedily\
+the coming of Christ\
+Christ will come\
+Millennium is near at hand\
+scene is wound up\
+in the flesh
 
-<span id="54" class="anchor"></span>
+would see the savior\
+live to go back to Jackson County\
+Christ will come before long\
+you will see Jesus\
+go back to Jackson County\
+some present would live to see
 
-1830-1834 Coming of the Son of Man: *“ When I contemplate the rapidity
-with which the great and glorious day of the coming of the Son of Man
-advances, when He shall come to receive His Saints unto Himself, where
-they shall dwell in His presence, and be crowned with glory and
-immortality: when I consider that **soon** the heavens are to be shaken,
-and the earth tremble and reel to and fro; and that the heavens are to
-be unfolded as a scroll when it is rolled up; and that every mountain
-and island are to flee away, I cry out in my heart, What manner of
-persons ought we to be in all holy conversation and godliness! You
-remember the testimony which I bore in the name of the Lord Jesus,
-**concerning the great work which He has brought forth in the last
-days.** You know my manner of communication, how that in weakness and
-simplicity, **I declared to you what the Lord had brought forth by the
-ministering of His holy angels to me for this generation.** I pray that
-the Lord may enable you to treasure these things in your mind, for I
-know that His Spirit will bear testimony to all who seek diligently
-after knowledge from Him. I hope you will search the Scriptures to see
-whether these things are not also consistent with those things which the
-ancient Prophets and Apostles have written. Your brother, etc. JOSEPH
-SMITH”*
-
-(Teachings of the Prophet Joseph Smith, by Joseph Smith. Compiled by
-Joseph Fielding Smith Church Historian. DHC--[Documentary] History of
-the Church. Section One 1830-34, p.29
-<http://www.boap.org/LDS/Joseph-Smith/Teachings/T4.html>)
-
-1842-43 Earth Now Groaning Under Corruption: *The earth is groaning
-under corruption, oppression, tyranny and bloodshed; and **God is coming
-out of His hiding place**, as He said He would do, to vex the nations of
-the earth. JOSEPH SMITH”* (Teachings of the Prophet Joseph Smith, by
-Joseph Smith.Compiled by Joseph Fielding Smith Church Historian.
-DHC--[Documentary] History of the Church. Section Five 1842-43, p.253
-<http://www.boap.org/LDS/Joseph-Smith/Teachings/T5.html> )
-
-https://www.lds.org/manual/teachings-joseph-smith/chapter-21?lang=eng
-
-Pulsipher, Zerah 1789-1872
-
-Autobiography (c. 1803-1862)
-
-Typescript, HBLL.
-
-HISTORY OF ZERA PULSIPHER
-
-AS WRITTEN BY HIMSELF
-
-I was about fourteen or fifteen years of age… I have often heard my
-father say that the signs of Christ's second coming was often seen and
-that he would come before many years should pass away. And if they did
-not live to see it, likely his children would.
-
-However, when I was about twenty-one I married a very agreeable
-companion, lived with her about one year when she died leaving one child
-which we named Harriett. After the death of my wife (Polly or Mary
-Randell) I had some anxiety about her state and condition, consequently
-in answer to my desires in a few weeks she came to me in vision and
-appearing natural looked pleasant as she ever did and sat by my side and
-assisted me in singing a hymn - beginning thus: "That glorious day is
-drawing nigh when Zions Light Shall Shine." This she did with a seeming
-composure.
-
-This vision took away all the anxiety of my mind concerning her in as
-much as she seemed to enjoy herself well. This hymn which she introduced
-and sang with me applied to the great work of the last dispensation of
-the fullness of times. This transpired about ten years before Joseph
-Smith had discovered the first revelation of the work of the last days.
-My mind became calm as respecting her condition in the spirit world.
-
-In the year 1814 I hired a farm at Bellows falls on the Connecticut
-River and being alone gave my brother John the privilege to work it with
-me. In the fall of that season there were the most extraordinary
-northern lights that I had ever saw, it was the cause of many
-speculative notions among the people but my father said it was the signs
-of the last days and of Christ's second coming. I regarded my father's
-remarks as specimens of good sense.
-
-Joseph Smith was the founder of the Mormon Church. He saw in a vision
-that the Kingdom of God would be west of a large river. He set up an
-earthly kingdom just west of the Mississippi River in Illinois. The town
-had been called Commerce, but Joseph Smith changed the name to Navoo.
-Joseph Smith told his followers that Jesus would return at Independence,
-Missouri. **While in Independence he was arrested and spent the winter
-in the Liberty Jail. At this time he saw a vision of a great river and
-Jesus was on the west side of the river**. Independence is east of the
-Missouri River. Joseph Smith was being transferred to a different jail
-and his followers helped him to escape. He traveled on the Mississippi
-River until he saw a mountain and a town in a valley west of the river.
-He told his followers that this town would now be called Navoo. He said
-it was a Greek word meaning "plateau." His followers could not find
-Navoo in Greek, but they believed he was a prophet, so they accepted the
-new name….
-
-**Smith Saw: Jesus Would Return in the Rockies**
-
-In the spring of 1844 Joseph Smith received a vision called "The White
-Horse Prophecy." He saw that Jesus would return in the Rockies. He told
-Brigham Young to take the members west and there they would meet up with
-a group of people who were pure in heart (the salt of the earth).
-
-<http://www.entrybytroops.org/joseph-smith.html>
-
-The overlooked prophesy on The Last Days and the 1891 2nd Coming of
-Jesus Christ.
-
-I’ve assembled 47 pages of chronological history taught by the early LDS
-Church, on the Second Advent of Jesus Christ, and predictions of his
-coming in the following years: 1846, before 1880, 1881, 1882 after 1884,
-1890-91, 1894.
-
-The LDS Church since 1820 has had much to say, about the Last Days and
-the 2nd Coming of Jesus Christ, usually focusing not on preparation for
-his advent, but rather on the signs. This focus often has the effect of
-producing the emotions of fear, doom, and dread – all of them
-incompatible with love. Jesus taught “There is no fear in love; but
-perfect love casteth out fear” (1 John 4:18)
-
-It’s ironic but not surprising that the LDS Church requires more of
-their members to enter the Kingdom of God then Jesus.<span id="28"
-class="anchor"></span> “v.28 Come unto me, all ye that labour and are
-heavy laden, and I will give you rest.  v.29 Take my yoke upon you, and
-learn of me; for I am meek and lowly in heart: and ye shall find rest
-unto your souls.<span id="30" class="anchor"></span>  v.30 For my yoke
-is easy, and my burden is light. [(Matt
-11:28-30)](https://www.lds.org/scriptures/nt/matt/11.28-30)
-
-Mr. X
-
-I have gathered 55 pages of documentation showing the Second Advent of
-Jesus Christ, and our LDS Prophets and Apostles Predictions of his
-coming in the following years: 1846, before 1880, 1881, 1882 after 1884,
-1890-91, 1893. The most prophesied date was 1891.
-
-No you aren’t the original chosen people. It was suppose to happen
-before 1893. Everything on the above list would have been resolved at
-Christ second coming; Polygamy, Council of 50, The White Horse Prophecy,
-The Everlasting United Order, The overthrow of the US Government…
-
-The Salt Lake Temple was dedicated in 1893, just in time for Jesus
-return. Have you ever wondered why the Saints could build the Manti,
-Logan and St. George Temples in 7 to 13 years but the SLT took 40? I
-have a 1852? newspaper article with Brigham Young stating it would take
-10 years to construct at a cost of \$\_?\_ million See April 8, 1893
-
-1920 was the beginning of the cover up; then the installation of the
-1940 “literature censorship committee”
-
-What’s been over looked is that all of Josephs Revelations: Council of
-the 50; Polygamy would come to fruition in 1891 the predicted year of
-Christ second advent.
-
-I like to reveal the Facts, because with Facts you don’t have to rely on
-Faith and Feelings.
-
-Clair Barrus
-
-<http://www.withoutend.org/contributors/clair-barrus/>
-
-<clairvb@gmail.com>
-
-It would please me to share my Second Advent document, with you and you
-alone. I’m looking for someone with website design skills to publish my
-research. I want it to be a living document that others can add to.
-~~Would you be willing to publish this?~~ Do you know someone willing to
-publish this?
-
-I’m sending it in its raw format. Please disregard my anger. (I was at a
-pretty ugly place when I was working on this.)
-
-I would like to know your story.
-
-George Daniel Speer Sr. (aka George Reeps)
-
-<speer.genealogy@gmail.com>
+-End-
